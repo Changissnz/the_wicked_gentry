@@ -9,6 +9,8 @@ A series of articles illustrating how far great things can fall. These are not g
 
 "Is he alright?" 
 
+"He must be guilty." 
+
 Concerned citizen Kane. Mister Confederado. The town skank. These are merely archetypes, but mostly every American that has lived in the suburbs for a prolonged time period would recognize these kinds of characters. They are rather unhelpful for impartial objectives. The first seems to care too much for her fellow town citizens, so much care that one could reasonably suspect she poses a security threat, due to her unkeenly sense of privacy, none at all for other people. The second has this way about him, like he believes in heritage on one hand. The supremacy that comes with his heritage. On the other hand, he has this sense of self-righteousness on many issues, clear bias for members of "his kind", and would like to see the minorities and gays humiliated from time to time, as well as pressure the town societies to burn that one girl at the stake, because she rejected him and had sex with a black man. The town skank is easy on the eyes. Perhaps she is worth her weight in gold. But if she is, then spending a night with her would be a death sentence if justice were left entirely to the indulgent cops and these confederados, alike. 
 
 Morality aside, see where the purpose is? Only a fool would.  
