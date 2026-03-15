@@ -67,3 +67,6 @@ What is better? Servitude in the public sector? Or slavery in the private sector
 
 Blood can only demand more blood when the side that bled is still living. So there is that. So many related private matters left unwritten. 
 
+## White Has to Attack First in Chess 
+
+No one wants war, so goes the pacifist. And after them, a choir of the most melodic voices pleading for peace, peace being the only justice, the only way for things to be right. But think...if White could not move first, there would never be a game of chess. Never ever. There is a lot of sick entertainment. Chess, a board game, is historically viewed as a morally flawed activity in some way. But think...White just has to move first. It is the only way for chess to be a game. And how can anyone not recognize this fact: the parallels between chess and the real world are endless. As endless as the possibilities for peace, but the caveat is that this world is finite, so any kind of transfer or change can be interpreted as unpeaceful, so true to the nature of chess, a simulation of war by positioning, assaulting, trapping, and targetting on a two-dimensional grid. It only takes some human imagination to transcribe that two-dimension to the real material world of three dimensions. 
