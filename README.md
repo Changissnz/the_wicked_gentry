@@ -9,7 +9,7 @@ A series of articles illustrating how far great things can fall. These are not g
 3. [Just Some Little Experiments in Autocracy](#Just-Some-Little-Experiments-in-Autocracy)
 4. [Stay Away From the Doubles](#Stay-Away-From-the-Doubles)
 5. [Making Private Equity Bleed to Death](#Making-Private-Equity-Bleed-to-Death)
-6. 
+6. [White Has to Attack First in Chess](#White-Has-to-Attack-First-in-Chess)
 
 ## The Fact Remains, It Is Not Their Business 
 
