@@ -97,4 +97,3 @@ There is still a correlation, despite modern global economies greatly selling th
 
 The gentry are designated middle management. Once the gentry becomes scattered in their ways, dispersed and hypocritical, collaborative but also in collusion, the social fabric that rests on the status quo is certainly slipping away, making way for a brave new world. 
 
-## The End 
