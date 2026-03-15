@@ -12,6 +12,7 @@ A series of articles illustrating how far great things can fall. These are not g
 6. [White Has to Attack First in Chess](#White-Has-to-Attack-First-in-Chess)
 7. [The Cities Cannot Last](#The-Cities-Cannot-Last)
 8. [When the Gentry Becomes Lost](#When-the-Gentry-Becomes-Lost)
+9. [Priesthood-and-Higher-Education](#Priesthood-and-Higher-Education)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -89,5 +90,7 @@ And then the gentry might try to intervene if they are still politically involve
 
 ## Priesthood and Higher Education  
 
-There is still a correlation, despite modern global economies greatly selling the idea of higher education. There is something about the formal process of education after reaching the age of legal adult that pushes some individuals into these outlets. And there they will most likely remain, not smart enough to stop getting educated, not positioned to make money, and not suited to serve as political representation. 
+There is still a correlation, despite modern global economies greatly selling the idea of higher education. There is something about the formal process of education after reaching the age of legal adult that pushes some individuals into these outlets. And there they will most likely remain, not smart enough to stop getting educated, not positioned to make money, and not suited to serve as political representation. The ideal of simple living is in both. Higher education, however, has a lot more tentacles than clergy, because it intends to serve the needs of a lot more types of people. Ultimately, how serious a student is about their studies is the determinant. 
+
+
 
