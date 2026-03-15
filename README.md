@@ -4,14 +4,14 @@ A series of articles illustrating how far great things can fall. These are not g
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ## Table of Contents
-1. [The Fact Remains, It Was Not Their Business ](#The-Fact-Remains-It-Was-Not-Their-Business)
+1. [The Fact Remains, It Is Not Their Business ](#The-Fact-Remains-It-Is-Not-Their-Business)
 2. [Big Security is Part of Big Business](#Big-Security-is-Part-of-Big-Business)
 3. [Just Some Little Experiments in Autocracy](#Just-Some-Little-Experiments-in-Autocracy)
 4. [Stay Away From the Doubles](#Stay-Away-From-the-Doubles)
 5. [Making Private Equity Bleed to Death](#Making-Private-Equity-Bleed-to-Death)
 6. 
 
-## The Fact Remains, It Was Not Their Business 
+## The Fact Remains, It Is Not Their Business 
 
 "What happened to him?" 
 
