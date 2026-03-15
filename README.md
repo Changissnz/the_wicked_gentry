@@ -75,7 +75,9 @@ No one wants war, so goes the pacifist. And after them, a choir of the most melo
 
 ## The Cities Cannot Last 
 
-Cities are high management. It is not easy to sustain a city. A city can only last as long as its status of being a center does. Supply chains become fragmented. Overeducation is now seen as a problem by many. Industrialized education. Labor unions are no longer fashionable. How can a city last when rent is the default over ownership? A free flux of incomers and outcomers. Limit the mobility of incomers and outcomers. Underpay the workers. Indulge in the wrong things. Be unable to stop industrial decline. And the city will be on a steady decline. 
+Cities are high management. It is not easy to sustain a city. A city can only last as long as its status of being a center does. Supply chains become fragmented. Overeducation is now seen as a problem by many. Industrialized education. Labor unions are no longer fashionable. How can a city last when rent is the default over ownership? A free flux of incomers and outcomers. 
+
+Limit the mobility of incomers and outcomers. Underpay the workers. Indulge in the wrong things. Be unable to stop industrial decline. And the city will be on a steady decline. 
 
 From above, cities are somewhat like anthills. A question to ask is what is the average ratio of ants that will defect from an anthill. 
 
