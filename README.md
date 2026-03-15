@@ -13,7 +13,7 @@ A series of articles illustrating how far great things can fall. These are not g
 7. [The Cities Cannot Last](#The-Cities-Cannot-Last)
 8. [When the Gentry Becomes Lost](#When-the-Gentry-Becomes-Lost)
 9. [Priesthood and Higher Education](#Priesthood-and-Higher-Education)
-10. [When the Gentry Goes Bad](#When-the-Gentry=Goes-Bad)
+10. [When the Gentry Goes Bad](#When-the-Gentry-Goes-Bad)
 
 ## The Fact Remains, It Is Not Their Business 
 
