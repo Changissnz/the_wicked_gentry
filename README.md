@@ -10,6 +10,7 @@ A series of articles illustrating how far great things can fall. These are not g
 4. [Stay Away From the Doubles](#Stay-Away-From-the-Doubles)
 5. [Making Private Equity Bleed to Death](#Making-Private-Equity-Bleed-to-Death)
 6. [White Has to Attack First in Chess](#White-Has-to-Attack-First-in-Chess)
+7. [The Cities Cannot Last](#The-Cities-Cannot-Last)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -69,4 +70,10 @@ Blood can only demand more blood when the side that bled is still living. So the
 
 ## White Has to Attack First in Chess 
 
-No one wants war, so goes the pacifist. And after them, a choir of the most melodic voices pleading for peace, peace being the only justice, the only way for things to be right. But think...if White could not move first, there would never be a game of chess. Never ever. There is a lot of sick entertainment. Chess, a board game, is historically viewed as a morally flawed activity in some way. But think...White just has to move first. It is the only way for chess to be a game. And how can anyone not recognize this fact: the parallels between chess and the real world are endless. As endless as the possibilities for peace, but the caveat is that this world is finite, so any kind of transfer or change can be interpreted as unpeaceful, so true to the nature of chess, a simulation of war by positioning, assaulting, trapping, and targetting on a two-dimensional grid. It only takes some human imagination to transcribe that two-dimension to the real material world of three dimensions. 
+No one wants war, so goes the pacifist. And after them, a choir of the most melodic voices pleading for peace, peace being the only justice, the only way for things to be right. But think...if White could not move first, there would never be a game of chess. Never ever. There is a lot of sick entertainment. Visually, chess cannot be any worse than the mildest of sick entertainment. Chess, a board game, is historically viewed as a morally flawed activity in some way. But think...White just has to move first. It is the only way for chess to be a game. And how can anyone not recognize this fact: the parallels between chess and the real world are endless. As endless as the possibilities for peace, but the caveat is that this world is finite, so any kind of transfer or change can be interpreted as unpeaceful, so true to the nature of chess, a simulation of war by positioning, assaulting, trapping, and targetting on a two-dimensional grid. It only takes some human imagination to transcribe that two-dimension to the real material world of three dimensions. 
+
+## The Cities Cannot Last 
+
+Cities are high management. It is not easy to sustain a city. A city can only last as long as its status of being a center does. Supply chains become fragmented. Overeducation is now seen as a problem by many. Industrialized education. Labor unions are no longer fashionable. How can a city last when rent is the default over ownership? A free flux of incomers and outcomers. Limit the mobility of incomers and outcomers. Underpay the workers. Indulge in the wrong things. Be unable to stop industrial decline And the city will be on a steady decline. 
+
+From above, cities are somewhat like anthills. A question to ask is what is the average ratio of ants that will defect from an anthill. 
