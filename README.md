@@ -27,7 +27,7 @@ Concerned citizen Kane. Mister Confederado. The town skank. These are merely arc
 
 Morality aside, see where the purpose is? Only a fool would.  
 
-The thing is, real business has been dying for quite some time in the region. People have a right to be indulgent, sure. But who are the ones that are best positioned to be entitled to indulge? Not those on the outskirts. The populists. The popular people. Mister Tall Basketball Guy. The old rich pervert. Big internet business had been gobbling up people's reading time, viewing time, allegiances, and aspirations for close to two decades now. What is left? These crumbs for the populace. A forced solitude for the sane intellect. 
+The thing is, real business has been dying for quite some time in the region. People have a right to be indulgent, sure. But who are the ones that are best positioned to be entitled to indulge? Not those on the outskirts. The populists. The popular people. Mister Tall Basketball Guy. The old rich pervert. Big internet business has been gobbling up people's reading time, viewing time, allegiances, and aspirations for close to two decades now. What is left? These crumbs for the populace. A forced solitude for the sane intellect. 
 
 It was not their business, but the business was either dying or already down under. Their niceties are not for rescue. Perhaps it serves to give them purpose, still, in this world trending towards obsoletion of many manmade things and even some human beings, questionably.  
 
