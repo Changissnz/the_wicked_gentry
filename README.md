@@ -11,6 +11,7 @@ A series of articles illustrating how far great things can fall. These are not g
 5. [Making Private Equity Bleed to Death](#Making-Private-Equity-Bleed-to-Death)
 6. [White Has to Attack First in Chess](#White-Has-to-Attack-First-in-Chess)
 7. [The Cities Cannot Last](#The-Cities-Cannot-Last)
+8. [When the Gentry Becomes Lost](#When-the-Gentry-Becomes-Lost)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -78,7 +79,7 @@ Cities are high management. It is not easy to sustain a city. A city can only la
 
 From above, cities are somewhat like anthills. A question to ask is what is the average ratio of ants that will defect from an anthill. 
 
-## When the Gentry Become Lost  
+## When the Gentry Becomes Lost  
 
 Populism is very singular. The unit is the commoner. There is a singleminded antagonism in populist movements, where constructive solution is rarer than confrontation. These movements really become valid when middle management loses its control over the work ethic and order. Without a middle management, commoners cannot organize efficiently at first. Leadership requires skill and experience. It is easy for commoners to look to the "elites" as the cause of societal problems. When populists become prominent and featured, these "elites" are almost always somewhere far off, more far away than their plutocratic status requires of them to maintain leadership. So many people end up having to deal with these irrationals, while the "elites" are somewhere off in LALA land, enjoying their numbered days. A characterization of the rise of "autocracy". 
 
