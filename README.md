@@ -13,6 +13,7 @@ A series of articles illustrating how far great things can fall. These are not g
 7. [The Cities Cannot Last](#The-Cities-Cannot-Last)
 8. [When the Gentry Becomes Lost](#When-the-Gentry-Becomes-Lost)
 9. [Priesthood and Higher Education](#Priesthood-and-Higher-Education)
+10. [When the Gentry Goes Bad](#When-the-Gentry=Goes-Bad)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -92,5 +93,8 @@ And then the gentry might try to intervene if they are still politically involve
 
 There is still a correlation, despite modern global economies greatly selling the idea of higher education. There is something about the formal process of education after reaching the age of legal adult that pushes some individuals into these outlets. And there they will most likely remain, not smart enough to stop getting educated, not positioned to make money, and not suited to serve as political representation. The ideal of simple living is in both. Higher education, however, has a lot more tentacles than clergy, because it intends to serve the needs of a lot more types of people. Ultimately, how serious a student is about their studies is the determinant. 
 
+## When the Gentry Goes Bad
 
+The gentry are designed as middle management. Once the gentry becomes scattered in their ways, dispersed and hypocritical, collaborative but also in collusion, the social fabric that rests on the status quo is certainly slipping away, making way for a brave new world. 
 
+## The End 
