@@ -10,25 +10,13 @@ it.
 
 "Is he alright?" 
 
-Concerned citizen Kane. Mister Confederado. The town skank. These are merely archetypes, but mostly every American that has lived in the  
-suburbs for a prolonged time period would recognize these kinds of characters. They are rather unhelpful for impartial objectives. The  
-first seems to care too much for her fellow town citizens, so much care that one could reasonably suspect she poses a security threat,  
-due to her unkeenly sense of privacy, none at all for other people. The second has this way about him, like he believes in heritage on  
-one hand. The supremacy that comes with his heritage. On the other hand, he has this sense of self-righteousness on many issues, clear  
-bias for members of "his kind", and would like to see the minorities and gays humiliated from time to time, as well as pressure the  
-town societies to burn that one girl at the stake, because she rejected him and had sex with a black man. The town skank is easy on  
-the eyes. Perhaps she is worth her weight in gold. But if she is, then spending a night with her would be a death sentence if justice  
-were left entirely to the indulgent cops and these confederados, alike. 
+Concerned citizen Kane. Mister Confederado. The town skank. These are merely archetypes, but mostly every American that has lived in the suburbs for a prolonged time period would recognize these kinds of characters. They are rather unhelpful for impartial objectives. The first seems to care too much for her fellow town citizens, so much care that one could reasonably suspect she poses a security threat, due to her unkeenly sense of privacy, none at all for other people. The second has this way about him, like he believes in heritage on one hand. The supremacy that comes with his heritage. On the other hand, he has this sense of self-righteousness on many issues, clear bias for members of "his kind", and would like to see the minorities and gays humiliated from time to time, as well as pressure the town societies to burn that one girl at the stake, because she rejected him and had sex with a black man. The town skank is easy on the eyes. Perhaps she is worth her weight in gold. But if she is, then spending a night with her would be a death sentence if justice were left entirely to the indulgent cops and these confederados, alike. 
 
 Morality aside, see where the purpose is? Only a fool would.  
 
-The thing is, real business has been dying for quite some time in the region. People have a right to be indulgent, sure. But who are  
-the ones that are best positioned to be entitled to indulge? Not those on the outskirts. The populists. The popular people. Mister  
-Tall Basketball Guy. The old rich pervert. Big internet business had been gobbling up people's reading time, viewing time, allegiances,  
-and aspirations for close to two decades now. What is left? These crumbs for the populace. A forced solitude for the sane intellect. 
+The thing is, real business has been dying for quite some time in the region. People have a right to be indulgent, sure. But who are the ones that are best positioned to be entitled to indulge? Not those on the outskirts. The populists. The popular people. Mister Tall Basketball Guy. The old rich pervert. Big internet business had been gobbling up people's reading time, viewing time, allegiances, and aspirations for close to two decades now. What is left? These crumbs for the populace. A forced solitude for the sane intellect. 
 
-It was not their business, but the business was either dying or already down under. Their niceties are not for rescue. Perhaps it serves  
-to give them purpose, still, in this world trending towards obsoletion of many manmade things and even some human beings, questionably.  
+It was not their business, but the business was either dying or already down under. Their niceties are not for rescue. Perhaps it serves to give them purpose, still, in this world trending towards obsoletion of many manmade things and even some human beings, questionably.  
 
 Judgments aside, the purpose of this section is to illustrate these purposes that such modern-day developed state provides to suburbia. 
 
