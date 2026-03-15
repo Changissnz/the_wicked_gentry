@@ -63,7 +63,7 @@ Nowhere is the unfairness felt more in the United States than in the private/pub
 
 Since the squeezing has already began in full, and it was disinformation campaigns before that, all the while all this speculation, private equity is looking prime not because it is the most moral and virtuous... but because it has been systematically eliminating competitors to up its odds of being the last one standing. What is there to expect at the end of these tunnels? The gutting of private equity, the last defender to that most cherished individual freedom that only the rich can afford. There seems to be a pattern here. When the rich are no longer officially rich or feel as though their riches are being threatened, they're not going to be magically replaced. Suddenly, it's war. 
 
-What is better? A servant in the public sector? Or a slave in the private sector? That is a recurring question when it comes to private equity. If the speculators are spared, the commoners who trusted them will be enslaved. If the political aide is fired, the private equity backing them might retaliate. 
+What is better? Servitude in the public sector? Or slavery in the private sector? That is a recurring question when it comes to private equity. If the speculators are spared, the commoners who trusted them will be enslaved. If the political aide is fired, the private equity backing them might retaliate. 
 
 Blood can only demand more blood when the side that bled is still living. So there is that. So many related private matters left unwritten. 
 
