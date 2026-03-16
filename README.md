@@ -16,7 +16,7 @@ A series of articles illustrating how far great things can fall. These are not g
 10. [When the Gentry Goes Bad](#When-the-Gentry-Goes-Bad)
 11. [The Wrong Test For the Wrong Person](#The-Wrong-Test-For-the-Wrong-Person)
 12. [Under the Authority of a Narcissist](#Under-the-Authority-of-a-Narcissist)
-13. [Not Until The Head of the Snake is at the Feet](#Not-Until-The-Head-of-the-Snake-is-at-the-Feet)
+13. [Not Until the Head of the Snake Is at the Feet](#Not-Until-the-Head-of-the-Snake-Is-at-the-Feet)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -128,7 +128,7 @@ Everyone has a self-righteous side to them. But not everyone is a narcissist.
 
 Then again, the label does not suffice to drive deep the flaws of the individual into their head, for their understanding. 
 
-## Not Until The Head of the Snake is at the Feet
+## Not Until the Head of the Snake Is at the Feet
 
 A review of this drastic and stubborn demand. The object is an advanced persistent threat. It continues to be somewhere near. It continues to make people nervous. It does not have to be a snake, physically. It might be a plague. It could also be an eagle, really. But all the same, a predator, no doubt. The object believes there is a payoff. The payoff demands a mortality or something equal in gravity to that. 
 
