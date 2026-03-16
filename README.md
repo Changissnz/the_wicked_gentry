@@ -156,7 +156,7 @@ It is a pay-to-play kind of defense deal. The predominantly Protestant establish
 
 The Observatory was practically a zoo for human beings. Civil rights legislation and United Nations' treatises on human rights had at least given some assurance that the Observatory would not turn into hunting grounds, by default. Specifically, the observatory does not permit unpermitted killing of human beings. The Observatory, therefore, is a kind of conservatory. 
 
-In order for the pay-to-play arrangement to remain attractive in the eyes of potential buyers, there had to be illusions convincing enough for the transaction. So in simple terms, there was a division of capital worth architected on top of the age-old divisions of labor. The Observatory is to remain the new-age colosseum of labor, even when scarcity is no longer a guarantee and many traditional jobs no longer needed. 
+In order for the pay-to-play arrangement to remain attractive in the eyes of potential buyers, there had to be illusions convincing enough for the transaction. So in simple terms, there was a division of capital worth architected on top of the age-old divisions of labor. The Observatory is to remain the new-age colosseum of labor, even when scarcity is no longer a constant and many traditional jobs no longer needed. 
 
 Some subjects of the Observatory became reliable sources of disparagement. The official term is "entertainment". This disparagement sometimes allowed them uncertain chances of befriending some of the audience members, the ones that are not puritanical about maintaining the divisions. That is some way to show humility and to maybe make friends. 
 
