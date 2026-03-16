@@ -14,6 +14,7 @@ A series of articles illustrating how far great things can fall. These are not g
 8. [When the Gentry Becomes Lost](#When-the-Gentry-Becomes-Lost)
 9. [Priesthood and Higher Education](#Priesthood-and-Higher-Education)
 10. [When the Gentry Goes Bad](#When-the-Gentry-Goes-Bad)
+11. [The Wrong Test For the Wrong Person](#The-Wrong-Test-For-the-Wrong-Person)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -96,4 +97,12 @@ There is still a correlation, despite modern global economies greatly selling th
 ## When the Gentry Goes Bad
 
 The gentry are designated middle management. Once the gentry becomes scattered in their ways, dispersed and hypocritical, collaborative but also in collusion, the social fabric that rests on the status quo is certainly slipping away, making way for a brave new world. 
+
+## The Wrong Test For the Wrong Person
+
+Robert E. Lee was a loser, based on the results. This is an unfair characterization of his leadership, but the harshness of it matches up with a lot of the fickleness and debasing attitude of the arrogant "South". He might have been a brilliant man, but he fought with bad numbers on his side. And it did not help that his army excluded blacks from serving. The terrible thing is, looking at the two generals Lee and Grant, Lee clearly was more disciplined, more unequivocally elite than Grant. But he practiced too much of Pauli Exclusion Principle. Despite Lee being a Westerner, his handling of the war and the circumstances of the nation-state he fought for, the American Confederacy, is eerily similar to that of many "Southern" nation-states. There is something about the South and the need to preserve rank and status. Enough about that man of history. 
+
+Everyone needs an ego test. But not everyone needs to constantly be challenged. This is a problem of allocation of human resources. "To each their own", "to let ways be parted" seems to always work out the wrong way. Incompatible people having to live with each other, their differences complementing each other in this endless cycle of neglect and hostility. 
+
+A test given by a person or system to another person requires the test-taker's compliance. If the test-taker does not comply, they will deliberately fail. If the test-taker did not prepare, they might fail. If the test-taker is not capable of passing after any kind of training, they will involuntarily fail. What is a test-taker but another multiple choice question in the eyes of someone else? 
 
