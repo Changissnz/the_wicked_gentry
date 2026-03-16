@@ -104,5 +104,5 @@ Robert E. Lee was a loser, based on the results. This is an unfair characterizat
 
 Everyone needs an ego test. But not everyone needs to constantly be challenged. This is a problem of allocation of human resources. "To each their own", "to let ways be parted" seem to always work out the wrong way. Incompatible people having to live with each other, their differences complementing each other in this endless cycle of neglect and hostility. 
 
-A test given by a person or system to another person requires the test-taker's compliance. If the test-taker does not comply, they will deliberately fail. If the test-taker did not prepare, they might fail. If the test-taker is not capable of passing after any kind of training, they will involuntarily fail. What is a test-taker but another multiple choice question in the eyes of someone else? 
+A test given by a person or system to another person requires that test-taker's compliance. If the test-taker does not comply, they will deliberately fail. If the test-taker did not prepare, they might fail. If the test-taker is not capable of passing after any kind of training, they will involuntarily fail. What is a test-taker but another multiple choice question in the eyes of someone else? 
 
