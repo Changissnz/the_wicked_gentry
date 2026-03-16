@@ -18,6 +18,7 @@ A series of articles illustrating how far great things can fall. These are not g
 12. [Under the Authority of a Narcissist](#Under-the-Authority-of-a-Narcissist)
 13. [Not Until the Head of the Snake Is at the Feet](#Not-Until-the-Head-of-the-Snake-Is-at-the-Feet)
 14. [Cryptic Subversion, Clear Displacement](#Cryptic-Subversion-Clear-Displacement)
+15. [The Phony Observatory](#The-Phony-Observatory)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -143,6 +144,28 @@ There are these decisions to be made, surrounded by all these moralities. Would 
 
 The universal agenda propagated by human language makes a lot of disbelievers and brings ill disappointments out as hatred into the open. The universal agenda is fair. But it is not comprehensive. It surrounds everything that matters, but emphasizes nothing. It inadvertently neutralizes attraction and flattens peaks. It is a harbinger of the worst kinds of dependencies, and it demands the dependencies remain in the name of ethical responsibility. It reminds people of their own failures and worse, it contradicts the individual's harsh personal lessons of finiteness. 
 
+
 Suppose that there are underlying issues, issues that are unresolvable unless some matters get slashed. There is no solution that would fit every thing available into that one space for that one design. The social fabric becomes squeezed and strained. Mostly everyone treads around the main issue, no direct mention. But the awkwardness by which they go about their tasks, not typical, anomalies that invite doubt, little micro-aggressions that repel. 
 
 All is not well enough to be mostly normal. Some destinations will not be reached and some positions will be out. There is yet another place for the displaced. They just do not know it yet. 
+
+
+## The Phony Observatory 
+
+It is a pay-to-play kind of defense deal. The predominantly Protestant establishment let the best kinds of businessmen, the Jewish ones, do business. The Catholics paid capital to know. The Americans of Scottish descent paid capital to know. Foreigners from Russia could also pay capital to know. In some places, wealthy Chinese had all but taken up the entire number of spots to play, paid for by the fruits of their Chinese servants' labor. Arabs with rationales of oil come to the land, having a sense of self-righteousness on matters such as Middle East regional conflicts. Arrangements such as these work very well in today's world, ever since the mastery of global maritime travel had been democratized. Many say it was the British that first mastered global maritime travel. This credit to them is debated by some, who believe it was Portuguese that came before them. 
+
+The Observatory was practically a zoo for human beings. Civil rights legislation and United Nations' treatises on human rights had at least given some assurance that the Observatory would not turn into hunting grounds, by default. Specifically, the observatory does not permit unpermitted killing of human beings. The Observatory, therefore, is a kind of conservatory. 
+
+In order for the pay-to-play arrangement to remain attractive in the eyes of potential buyers, there had to be illusions convincing enough for the transaction. So in simple terms, there was a division of capital worth architected on top of the age-old divisions of labor. The Observatory is to remain the new-age colosseum of labor, even when scarcity is no longer a guarantee and many traditional jobs no longer needed. 
+
+Some subjects of the Observatory became reliable sources of disparagement. The official term is "entertainment". This disparagement sometimes allowed them uncertain chances of befriending some of the audience members, the ones that are not puritanical about maintaining the divisions. That is some way to show humility and to maybe make friends. 
+
+Other subjects of the Observatory were practically put on a list of high-risk members, prone to unruly and trouble-making activity. These were the ones that partly wanted to become anarchists, partly intended to outmaster the "masters" of the Observatory, those that pay to play. 
+
+There is a kind of unspoken hatred and masked anger in many of the lives lived in the Observatory. Privacy was commodified. Jeopardy can be sponsored. 
+
+The Observatory cannot, under ordinary circumstances, allow for sudden movements or changes. Under certain conditions, the Observatory could turn into a grounds for a human stampede. Human stampedes have occurred in this land before. Lives were lost. Reparations were made, but the show still seems to continue going on now. 
+
+In many ways, the Observatory is a great design for due process. There are always complaints between some people, such as those that pay-to-play, that being their intention, but also favor and want to own some of the members of the Observatory over others. So they fight with each other over these contentions. Another frequent complaint is the conservatory way from the Observatory's oversight. The oversight was to remain boss for quite some time. There is, thus, no escaping the roles assigned for the time. The Observatory is the greatest civilizational design to date for socio-economic accounting, enhanced by automated electronic sensors and human operators with backgrounds of world-class educations. 
+
+The Observatory is somewhat phony because it is a source of gossip. The Observatory also conditions its subjects to present gleaming images of themselves, as attractive well-spoken members of a knowledgeable and compassionate subgroup of human beings, so distinguishable that they should feel honored to be subjects of the Observatory instead of a subject not of the Observatory. 
