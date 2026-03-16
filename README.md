@@ -121,7 +121,7 @@ The most simple way to look at this personality trait is to believe that narciss
 
 Narcissism comes with insecurities. The insecurities revolve around status and self-worth, those notions of identity that cannot go lower than expected, only higher than most. Or else. 
 
-The issue with psychology is that a lot of it is soft logic, paving the way for narcissists to never admit wrong. 
+The issue with psychology is that a lot of it is soft logic, paving the way for narcissists exposed to the field to, nevertheless, never admit wrong. 
 
 Everyone has a self-righteous side to them. But not everyone is a narcissist. 
 
