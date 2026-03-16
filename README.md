@@ -17,6 +17,7 @@ A series of articles illustrating how far great things can fall. These are not g
 11. [The Wrong Test For the Wrong Person](#The-Wrong-Test-For-the-Wrong-Person)
 12. [Under the Authority of a Narcissist](#Under-the-Authority-of-a-Narcissist)
 13. [Not Until the Head of the Snake Is at the Feet](#Not-Until-the-Head-of-the-Snake-Is-at-the-Feet)
+14. [Cryptic Subversion, Clear Displacement](#Cryptic-Subversion-Clear-Displacement)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -138,3 +139,10 @@ There was a man who once said "mercy to the wicked is cruelty to the innocent". 
 
 There are these decisions to be made, surrounded by all these moralities. Would Agamemnon not have killed another soldier in his army rather than Achilles? 
 
+## Cryptic Subversion, Clear Displacement 
+
+The universal agenda propagated by human language makes a lot of disbelievers and brings ill disappointments out as hatred into the open. The universal agenda is fair. But it is not comprehensive. It surrounds everything that matters, but emphasizes nothing. It inadvertently neutralizes attraction and flattens peaks. It is a harbinger of the worst kinds of dependencies, and it demands the dependencies remain in the name of ethical responsibility. 
+
+Suppose that there are underlying issues. Issues that are unresolvable unless some matters get slashed. There is not solution that would fit every thing available into that one space for that one design. The social fabric becomes squeezed and strained. Mostly everyone treads around the main issue, no direct mention. But the awkwardness by which they go about their tasks, not typical, anomalies that invite doubt, little micro-aggressions that repel. 
+
+All is not well enough to be mostly normal. Some destinations will not be reached and some positions will be out. There is yet another place for the displaced. They just do not know it yet. 
