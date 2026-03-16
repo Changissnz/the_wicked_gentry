@@ -132,7 +132,7 @@ Then again, the label does not suffice to drive deep the flaws of the individual
 
 A review of this drastic and stubborn demand. The object is an advanced persistent threat. It continues to be somewhere near. It continues to make people nervous. It does not have to be a snake, physically. It might be a plague. It could also be an eagle, really. But all the same, a predator, no doubt. The object believes there is a payoff. The payoff demands a mortality or something equal in gravity to that. 
 
-Once the object is in sight and there is strength and energy to confront, the object must be confronted to be eliminated. The end. No more threat that is advanced and persistent. No more need to walk on eggshells, having to always check the back, look over the shoulder. 
+Once the object is in sight and there is strength and energy to confront it, the object must be confronted to be eliminated. The end. No more threat that is advanced and persistent. No more need to walk on eggshells, having to always check the back, look over the shoulder. 
 
 There was a man who once said "mercy to the wicked is cruelty to the innocent". The phrase does have merit. But in the wrong hands dictated from the wrong minds is dogma at best. Where is that long debate with sharing angles and perspectives? But the time. The time demands now to act. The object is, indeed, an advanced persistent threat. And it is not somewhere far off, tending to its own business. 
 
