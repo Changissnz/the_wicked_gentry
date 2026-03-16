@@ -16,6 +16,7 @@ A series of articles illustrating how far great things can fall. These are not g
 10. [When the Gentry Goes Bad](#When-the-Gentry-Goes-Bad)
 11. [The Wrong Test For the Wrong Person](#The-Wrong-Test-For-the-Wrong-Person)
 12. [Under the Authority of a Narcissist](#Under-the-Authority-of-a-Narcissist)
+13. [Not Until The Head of the Snake is at the Feet](#Not-Until-The-Head-of-the-Snake-is-at-the-Feet)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -126,4 +127,14 @@ The issue with psychology is that a lot of it is soft logic, paving the way for 
 Everyone has a self-righteous side to them. But not everyone is a narcissist. 
 
 Then again, the label does not suffice to drive deep the flaws of the individual into their head, for their understanding. 
+
+## Not Until The Head of the Snake is at the Feet
+
+A review of this drastic and stubborn demand. The object is an advanced persistent threat. It continues to be somewhere near. It continues to make people nervous. It does not have to be a snake, physically. It might be a plague. It could also be an eagle, really. But all the same, a predator, no doubt. The object believes there is a payoff. The payoff demands a mortality or something equal in gravity to that. 
+
+Once the object is in sight and there is strength and energy to confront, the object must be confronted to be eliminated. The end. No more threat that is advanced and persistent. No more need to walk on eggshells, having to always check the back, look over the shoulder. 
+
+There was a man who once said "mercy to the wicked is cruelty to the innocent". The phrase does have merit. But in the wrong hands dictated from the wrong minds is dogma at best. Where is that long debate with sharing angles and perspectives? But the time. The time demands now to act. The object is, indeed, an advanced persistent threat. And it is not somewhere far off, tending to its own business. 
+
+There are these decisions to be made, surrounded by all these moralities. Would Agamemnon not have killed another soldier in his army rather than Achilles? 
 
