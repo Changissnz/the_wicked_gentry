@@ -111,7 +111,7 @@ A test given by a person or system to another person requires that test-taker's 
 
 Having to tolerate the nuisances of a narcissist will teach one the value of self-love, perhaps because it is a survival strategy rather than a great personality trait to have. Being the recipient of charity will teach one the value of greed: the doors are open, so take as much as possible. Narcissists require socioeconomic dependencies that favor them, in order to persist. Charity can only continue when the foundation has extras to give out. In order for the foundation to have extras to give out, they must be well-funded.  
 
-A narcissist teaches that the little things really matter. In principle, a narcissist's dishonesty ignores their flaws. A narcissist can also be considered a psychopath when their dishonesty aims to really hurt other people. 
+A narcissist teaches the lesson of how the little things really matter. In principle, a narcissist's dishonesty ignores their flaws. A narcissist can also be considered a psychopath when their dishonesty aims to really hurt other people. 
 
 The issue with the term is that it requires acceptance. The term is in human psychology, a field in which the human mind is the subject of study. But in real life, the human mind is the master of cognition. 
 
