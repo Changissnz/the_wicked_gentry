@@ -15,6 +15,7 @@ A series of articles illustrating how far great things can fall. These are not g
 9. [Priesthood and Higher Education](#Priesthood-and-Higher-Education)
 10. [When the Gentry Goes Bad](#When-the-Gentry-Goes-Bad)
 11. [The Wrong Test For the Wrong Person](#The-Wrong-Test-For-the-Wrong-Person)
+12. [Under the Authority of a Narcissist](#Under-the-Authority-of-a-Narcissist)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -105,4 +106,24 @@ Robert E. Lee was a loser, based on the results. This is an unfair characterizat
 Everyone needs an ego test. But not everyone needs to constantly be challenged. This is a problem of allocation of human resources. "To each their own", "to let ways be parted" seem to always work out the wrong way. Incompatible people having to live with each other, their differences complementing each other in this endless cycle of neglect and hostility. 
 
 A test given by a person or system to another person requires that test-taker's compliance. If the test-taker does not comply, they will deliberately fail. If the test-taker did not prepare, they might fail. If the test-taker is not capable of passing after any kind of training, they will involuntarily fail. What is a test-taker but another multiple choice question in the eyes of someone else? 
+
+## Under the Authority of a Narcissist
+
+Having to tolerate the nuisances of a narcissist will teach one the value of self-love, perhaps because it is a survival strategy rather than a great personality trait to have. Being the recipient of charity will teach one the value of greed. Narcissists require socioeconomic dependencies that favor them, in order to persist. Charity can only continue when the foundation has extras to give out. In order for the foundation to have extras to give out, they must be well-funded.  
+
+A narcissist teaches that the little things really matter. In principle, a narcissist's dishonesty ignores their flaws. A narcissist can also be considered a psychopath when their dishonesty aims to really hurt other people. 
+
+The issue with the term is that it requires acceptance. The term is in human psychology, a field in which the human mind is the subject of study. But in real life, the human mind is the master of cognition. 
+
+Calling someone a narcissist is a trivial insult, really. In some practices, every individual is socially influenced to end up loving themself more. 
+
+The most simple way to look at this personality trait is to believe that narcissists are born, not made. 
+
+Narcissism comes with insecurities. The insecurities revolve around status and self-worth, those notions of identity that cannot go lower than expected, only higher than most. Or else. 
+
+The issue with psychology is that a lot of it is soft logic, paving the way for narcissists to never admit wrong. 
+
+Everyone has a self-righteous side to them. But not everyone is a narcissist. 
+
+Then again, the label does not suffice to drive deep the flaws of the individual into their head, for their understanding. 
 
