@@ -201,4 +201,4 @@ The conceptual rush is the greatest physical display of the maximal mentalities.
 
 The rush to start something. The rush to own something. The rush to reach a checkpoint. A rush that cannot operate from independent variables will always be bogged down by association to restraint. 
 
-The rush is an economy liberated, in some way, after the economy has been turning its back for quite some time. But the rush shatters the resting state of that economy. Sheer motion chosen. Sheer motion it is. 
+The rush is an economy liberated, in some way, after the economy had been turning its back for quite some time. But the rush shatters the resting state of that economy. Sheer motion chosen. Sheer motion it is. 
