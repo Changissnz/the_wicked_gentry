@@ -19,7 +19,7 @@ A series of articles illustrating how far great things can fall. These are not g
 13. [Not Until the Head of the Snake Is at the Feet](#Not-Until-the-Head-of-the-Snake-Is-at-the-Feet)
 14. [Cryptic Subversion, Clear Displacement](#Cryptic-Subversion-Clear-Displacement)
 15. [The Phony Observatory](#The-Phony-Observatory)
-16. [Blood and Gaslights](#Blood-and-Gaslights) 
+16. [Blood for Gaslights](#Blood-for-Gaslights) 
 
 ## The Fact Remains, It Is Not Their Business 
 
