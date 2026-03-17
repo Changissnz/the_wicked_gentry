@@ -158,7 +158,7 @@ The Observatory was practically a zoo for human beings. Civil rights legislation
 
 In order for the pay-to-play arrangement to remain attractive in the eyes of potential buyers, there had to be illusions convincing enough for the transaction. So in simple terms, there was a division of capital worth architected on top of the age-old divisions of labor. The Observatory is to remain the new-age colosseum of labor, even when scarcity is no longer a constant and many traditional jobs no longer needed. 
 
-Some subjects of the Observatory became reliable sources of disparagement. The official term is "entertainment". This disparagement sometimes allowed them uncertain chances of befriending some of the audience members, the ones that are not puritanical about maintaining the divisions. That is some way to show humility and to maybe make friends. 
+Some subjects of the Observatory became reliable targets for disparagement. The official term is "entertainment". This disparagement sometimes allowed them uncertain chances of befriending some of the audience members, the ones that are not puritanical about maintaining the divisions. That is some way to show humility and to maybe make friends. 
 
 Other subjects of the Observatory were practically put on a list of high-risk members, prone to unruly and trouble-making activity. These were the ones that partly wanted to become anarchists, partly intended to outmaster the "masters" of the Observatory, those that pay to play. 
 
