@@ -19,7 +19,8 @@ A series of articles illustrating how far great things can fall. These are not g
 13. [Not Until the Head of the Snake Is at the Feet](#Not-Until-the-Head-of-the-Snake-Is-at-the-Feet)
 14. [Cryptic Subversion, Clear Displacement](#Cryptic-Subversion-Clear-Displacement)
 15. [The Phony Observatory](#The-Phony-Observatory)
-16. [Blood for Gaslights](#Blood-for-Gaslights) 
+16. [Blood for Gaslights](#Blood-for-Gaslights)
+17. [There Cannot Be a Costless Rush)(#There-Cannot-Be-a-Costless-Rush)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -189,3 +190,15 @@ What an unnatural era. Calling it a neo-Victorian era does not sound right to so
 
 It does not take skill or courage to lie. Lies take strength and honor in order to follow through on their socially acceptable ramifications. But since lies are lies, the metaphorical ground is so unstable. Houses cannot be built on that ground. People do not know what is up or down standing on top of that ground. It is as if that ground is cursed with the remnants of the deceased felled by previous wars. 
 
+## There Cannot Be a Costless Rush 
+
+This is advice from a cautious and conservative stance. The rush might work. But it has to be fast. It requires an explosive kind of energy with effects that outlast the split second, in order to negate the 
+adversary's potential. 
+
+Caught in the spirit of having to fit in, of believing in numbers multiplied tens of thousands of times their actual, lured by consumerist society, the social pressure is to rush towards these supposed ideals. But like the mirages of the desert, nothing. Could it be some motives, uncomfortable to speak of, that promoted these tales? Or were these tales actually possibly to reach, but unfortunately for the individual, the tales got sold out upon their arrival. Not in the nick of time? 
+
+The conceptual rush is the greatest physical display of the maximal mentalities. Its immediate effects work. Its price tag cannot escape exponentiation after the first few times, though. 
+
+The rush to start something. The rush to own something. The rush to reach a checkpoint. A rush that cannot operate from independent variables will always be bogged down by association to restraint. 
+
+The rush is an economy liberated, in some way, after the economy has been turning its back for quite some time. But the rush shatters the resting state of that economy. Sheer motion chosen. Sheer motion it is. 
