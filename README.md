@@ -183,5 +183,9 @@ The leadership says there are these dark and nasty problems brewing underneath. 
 
 It is only right to honor the dead because many that prematurely died were felled by war. Dissolution of business arrangements are a major foreshadowing for war. Values that have become routine and standardized now are placed into question by one of the remaining prevalent body of political opinion, the idiocracy. 
 
-Many issues can be resolved without spilling of blood. But the trust will take another generation to rebuild.  
+Many issues can be resolved without spilling of blood. But the trust will always take another generation to rebuild. So goes another era, under the tomfoolery of those that wanted to lead, but have gotten too old, while still maintaining their prejudices. These are the ones that ordered their construction workers to build a bunch of houses, then told most of the college graduates to take the salary of an underpaid nun or beat it back to their homes. The houses stay empty, like trophies of their business authority. These are the ones that have resorted to bartering because the financial system fell under their rule. These are the ones that try to play matchmaker with the youth, in order to preserve some bloodlines and end those not of their kind. 
+
+What an unnatural era. Calling it a neo-Victorian era does not sound right to some people. Many people are at a loss for words because they have chosen silence and social distancing, knowing that they are living in a war of deception. 
+
+It does not take skill or courage to lie. Lies take strength and honor in order to follow through on their socially acceptable ramifications. But since lies are lies, the metaphorical ground is so unstable. Houses cannot be built on that ground. People do not know what is up or down standing on top of that ground. It is as if that ground is cursed with the remnants of the deceased felled by previous wars. 
 
