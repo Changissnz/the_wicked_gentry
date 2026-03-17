@@ -20,7 +20,7 @@ A series of articles illustrating how far great things can fall. These are not g
 14. [Cryptic Subversion, Clear Displacement](#Cryptic-Subversion-Clear-Displacement)
 15. [The Phony Observatory](#The-Phony-Observatory)
 16. [Blood for Gaslights](#Blood-for-Gaslights)
-17. [There Cannot Be a Costless Rush)(#There-Cannot-Be-a-Costless-Rush)
+17. [There Cannot Be a Costless Rush](#There-Cannot-Be-a-Costless-Rush)
 
 ## The Fact Remains, It Is Not Their Business 
 
