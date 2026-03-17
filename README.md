@@ -179,7 +179,7 @@ Rites become stalled. Everyone gets scattered. Promises become fictional poetry.
 
 The world is full of lies. That one man named Saint Augustine barely did a thing to assuage the dishonesty of humankind, but at least he took effort to send a strong message. 
 
-The leadership says there are these dark and nasty problems brewing underneath. Telling the public about these problems in full does not guarantee problems will resolve. People may organize to denounce the controversy and produce more controversy. So some kinds of information go through this long and unaccountable filtration process before it reaches the public. 
+The leadership says there are these dark and nasty problems brewing underneath. Telling the public about these problems in full does not guarantee the problems will resolve. People may organize to denounce the controversy and produce more controversy. So some kinds of information go through this long and unaccountable filtration process before it reaches the public. 
 
 It is only right to honor the dead because many that prematurely died were felled by war. Dissolution of business arrangements are a major foreshadowing for war. Values that have become routine and standardized now are placed into question by one of the remaining prevalent body of political opinion, the idiocracy. 
 
