@@ -197,7 +197,7 @@ adversary's potential.
 
 Caught in the spirit of having to fit in, of believing in numbers multiplied tens of thousands of times their actual, lured by consumerist society, the social pressure is to rush towards these supposed ideals. But like the mirages of the desert, nothing. Could it be that some motives, uncomfortable to speak of, promoted these tales? Or were these tales actually possible to reach, but unfortunately for the individual, the tales got sold out upon their arrival. Not in the nick of time? 
 
-The conceptual rush is the greatest physical display of the maximal mentalities. Its immediate effects work. Its price tag cannot escape exponentiation after the first few times, though. 
+The conceptual rush is the greatest physical display of the maximalist mentalities. Its immediate effects work. Its price tag cannot escape exponentiation after the first few times, though. 
 
 The rush to start something. The rush to own something. The rush to reach a checkpoint. A rush that cannot operate from independent variables will always be bogged down by association to restraint. 
 
