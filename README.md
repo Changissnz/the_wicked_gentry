@@ -19,6 +19,7 @@ A series of articles illustrating how far great things can fall. These are not g
 13. [Not Until the Head of the Snake Is at the Feet](#Not-Until-the-Head-of-the-Snake-Is-at-the-Feet)
 14. [Cryptic Subversion, Clear Displacement](#Cryptic-Subversion-Clear-Displacement)
 15. [The Phony Observatory](#The-Phony-Observatory)
+16. [Blood and Gaslights](#Blood-and-Gaslights) 
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -169,3 +170,18 @@ The Observatory cannot, under ordinary circumstances, allow for sudden movements
 In many ways, the Observatory is a great design for due process. There are always complaints between some people, such as those that pay-to-play, that being their intention, but also favor and want to own some of the members of the Observatory over others. So they fight with each other over these contentions. Another frequent complaint is the conservatory way from the Observatory's oversight. The oversight was to remain boss for quite some time. There is, thus, no escaping the roles assigned for the time. The Observatory is the greatest civilizational design, to date, for socio-economic accounting, enhanced by automated electronic sensors and human operators with backgrounds of world-class educations. 
 
 The Observatory is somewhat phony because it is a source of gossip. The Observatory also conditions its subjects to present gleaming images of themselves, as attractive well-spoken members of a knowledgeable and compassionate subgroup of human beings, so distinguishable that they should feel honored to be subjects of the Observatory instead of subjects not of the Observatory. 
+
+## Blood for Gaslights  
+
+It always predictably becomes one requirement after another. The big payoff will never be paid by them. They are the type to believe in charity, but their charity comes from their political and social responsibilities. With these political and social responsibilities come power. They want to retain power. If circumstances place them in the spot to have to transfer power, they will do so to "one of their kind". 
+
+Rites become stalled. Everyone gets scattered. Promises become fictional poetry. Mental illness becomes grouped with biological plagues, cultural decay, and political silencing. 
+
+The world is full of lies. That one man named Saint Augustine barely did a thing to assuage the dishonesty of humankind, but at least he took effort to send a strong message. 
+
+The leadership says there are these dark and nasty problems brewing underneath. Telling the public about these problems in full does not guarantee problems will resolve. People may organize to denounce the controversy and produce more controversy. So some kinds of information go through this long and unaccountable filtration process before it reaches the public. 
+
+It is only right to honor the dead because many that prematurely died were felled by war. Dissolution of business arrangements are a major foreshadowing for war. Values that have become routine and standardized now are placed into question by one of the remaining prevalent body of political opinion, the idiocracy. 
+
+Many issues can be resolved without spilling of blood. But the trust will take another generation to rebuild.  
+
