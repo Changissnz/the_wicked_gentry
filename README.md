@@ -230,5 +230,5 @@ are then proof that it is a small world.
 
 The issue with the purist perspective of institutions being boss is that there is no fair chance for anything different, to begin with. If conservatism became the only thing, institutions will divert any difference into these designated sinkholes, out of sight and out of mind of the official gleaming representation. Then the institutions want to remain authority but cannot be funded anymore, under conservative rations. Now would that be a scam? 
 
-It looks like some people have a problem letting go with not getting paid. Some are trying to benefit as much from the bait-and-switch. But they made the world so small. A lot of incompatibles are going to wind up getting bunched together. 
+It looks like some people have a problem letting go with not getting paid. Some are trying to benefit as much as possible from the bait-and-switch. But they made the world so small. A lot of incompatibles are going to wind up getting bunched together. 
 
