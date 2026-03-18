@@ -21,6 +21,7 @@ A series of articles illustrating how far great things can fall. These are not g
 15. [The Phony Observatory](#The-Phony-Observatory)
 16. [Blood for Gaslights](#Blood-for-Gaslights)
 17. [There Cannot Be a Costless Rush](#There-Cannot-Be-a-Costless-Rush)
+18. [It Clearly Turned Into a Scam](#It-Clearly-Turned-Into-a-Scam)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -202,3 +203,32 @@ The conceptual rush is the greatest physical display of the maximalist mentaliti
 The rush to start something. The rush to own something. The rush to reach a checkpoint. A rush that cannot operate from independent variables will always be bogged down by association to restraint. 
 
 The rush is an economy liberated, in some way, after the economy had been turning its back for quite some time. But the rush shatters the resting state of that economy. Sheer motion chosen. Sheer motion it is. 
+
+## It Clearly Turned Into a Scam  
+
+The fact that money is required is already one difference off from the mark. 
+
+Scams can be considered one of the milder forms of deception, the most extreme resulting in large-scale violent wars. These schemes usually center on the money, expressions of a lot of money to give when there is none or some valuable for little money. 
+
+Scams require an insufficient and contradictory security apparatus for serious damaging effects to financials. A scammer does not rush to break the kneecaps of a horse and then demand the horse crawl 
+to water to drink it, in the name of justice. But a scammer would rush to sell the horse, or the body of that horse, if the horse does get kneecapped. 
+
+Similarly, walking up to a disinformation agent, such as a scammer, and unloading a few bullets into their face would not be an act typically done by a scammer. The apparent act is murder, more apparent than deception for financial gain. 
+
+Who is a typical person that will say that higher education is a scam? It could not possibly be that one idiot philosophy professor that deliberately fails the students he just does not like for some reason. Fate, how about that? It could not possibly be that one university administrator, in charge of his institution's finances, that would not dare discourage applicants from attending his university. Less students, less revenue from sports events. 
+
+The people that say higher education is a scam may be quite honest. They believe in hard work, despise the sophistry that some educated types resort to in defense of their self-worth, and know the world is crooked enough for there to be ten potential Einsteins for every Einstein. They see the politics behind education, the institutionalization of those deemed different, and the broken and sorry states of those that applied their mind more than what is productively necessary. And the catch-22s that put a predominant number of the educated into their place, shrinking them back to where they came from, conditions that could not be fully envied by laborers. 
+
+Some of the people that proclaim higher education is a scam are not honest, whatsoever. They say, with a clear air of pomposity, that trade school is the better route. They tell young women to drop out to be another one of their mistresses. They feign danger of the educated criminally conspiring against the populace. They know the odds of success for some to follow through on higher education are slim. The zone of higher education is, indeed, filled with cultural prejudices that oftentime interfere with the performance of students, never to be favored at the location. So they try to capitalize on those odds by advocating for the opposite: no higher education needed. Rewind back a couple decades or so, and these advocates would be advocating for the opposite view, more higher education. More higher education. That was when higher education became the get-out-of-disparity card for the underprivileged, supposedly. 
+
+Where is the payoff then? What must be done to receive the payoff, to leave higher education or remain? The marketers and advertisers are legally allowed to lie about salaries and product details. That is the nature of business, which is why business is always one member of the Triad of Politics, Business, and War. 
+
+It might be just a scam, truthfully. A period of years of thought injection from the educational authorities into the student. Graduate or fail the student. And let them try to roam around, without stable work because most of the work got outsourced overseas. The elders tell them they should have just served in the military. Peers their age that served in the military are already all settled into their adult life, being able to start a family and everything. 
+
+Scams pave the way for bad sport. Bad sport destroys credit rating even further, and some people might resort to anything because since the major rules have already been broken, why not break more. In some regions, there is really no social mobility. Some say the United States has a little bit of social mobility, but the pieces of garbage will try to dump a lot of their trash onto planned paths. These barriers 
+are then proof that it is a small world. 
+
+The issue with the purist perspective of institutions being boss is that there is no fair chance for anything different, to begin with. If conservatism became the only thing, institutions will divert any difference into these designated sinkholes, out of sight and out of mind of the official gleaming representation. Then the institutions want to remain authority but cannot be funded anymore, under conservative rations. Now would that be a scam? 
+
+It looks like some people have a problem letting go with not getting paid. Some are trying to benefit as much from the bait-and-switch. But they made the world so small. A lot of incompatibles are going to wind up getting bunched together. 
+
