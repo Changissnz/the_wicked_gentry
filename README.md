@@ -249,5 +249,5 @@ Theatrics aside, quality of communication dies down under scoffs and dismissal. 
 
 The complexity of human nature transcends the fundamentals. The fundamentals of the natural world do not automatically support learned behaviors and chosen sentiments held onto. Fundamentalists try very hard to reconcile their cultural and personal preferences with these fundamentals. One common approach is to completely decline to explain, but just go with it. Just claim these arbitrary matters to be part of the fundamental. An unbreakable self-righteousness, per se. 
 
-Scoffs and dismissal. Letting these forces of hold-ups and nuisances. Patience becomes just as worthless as any other devalued thing. 
+Scoffs and dismissal. Permitting these forces of hold-ups and nuisances. Patience becomes just as worthless as any other devalued thing. 
 
