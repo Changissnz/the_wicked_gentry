@@ -268,10 +268,10 @@ What would motivate someone to work under mercenary interests? Surely, the extra
 
 The answer might come down to the semantics of what is and isn't. Other answers might include valuable details of the nation-state's social arrangements. Maybe the citizenry of that nation-state cannot or do not want to fully commit. 
 
-Allowing for mercenary interests work under certain conditions. Maybe the sponsors of the mercenary activity have things to sell and ways to pay off debt. Allocating for mercenaries also work in dealing with demands for diversification. Suppose a remote branch of an organization headquartered at home wants to split off, complete their objectives their way. Mercenaries?
+Allowing for mercenary interests work under certain conditions. Maybe the sponsors of the mercenary activity have things to sell and ways to pay off debt. Allocating for mercenaries also work in dealing with demands for diversification. Suppose a remote branch of an organization headquartered at home wants to split off, complete their objectives their way. Mercenaries? While some identities go by strict rigidities, these identities can accomodate for a lending hand from mercenaries, deeds that go along with the utilitarian side of acceptance. 
 
 Mercenaries typically cannot afford to prolong conflict. Their skills, honed better than many of the public, are counter-balanced by their different survivalist strategy. Many feel as though they do not have to fight past an extent. Some were not forced into the conflict. They chose to start the conflict. 
 
 Mercenary mentalities remain part of capitalist nation-states, through war and peace. 
 
-Mercenary identities go by a different ranking in prestige. They fight for aristocrats instead of trying to be one of them. They are minorities in the eyes of their benefactors. These identities compensate for misunderstanding by fighting for capital from the capital state.  
+Mercenary identities go by a different ranking in prestige. They fight for aristocrats instead of trying to be one of them. They are minorities in the eyes of their benefactors. These identities compensate for misunderstanding by fighting for capital from the capital state. And unlike the docile forms that civility of cultural norms can force down onto the domestics, mercenary identities go by less restrained means and have less obligation to be modest,for they are of a different kind, in rigid terms. 
