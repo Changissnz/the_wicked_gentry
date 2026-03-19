@@ -274,4 +274,4 @@ Mercenaries typically cannot afford to prolong conflict. Their skills, honed bet
 
 Mercenary mentalities remain part of capitalist nation-states, through war and peace. 
 
-Mercenary identities go by a different ranking in prestige. They fight for aristocrats instead of trying to be one of them. They are minorities. These identities compensate for misunderstanding by fighting for capital from the capital state.  
+Mercenary identities go by a different ranking in prestige. They fight for aristocrats instead of trying to be one of them. They are minorities in the eyes of their benefactors. These identities compensate for misunderstanding by fighting for capital from the capital state.  
