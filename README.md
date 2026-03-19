@@ -22,6 +22,7 @@ A series of articles illustrating how far great things can fall. These are not g
 16. [Blood for Gaslights](#Blood-for-Gaslights)
 17. [There Cannot Be a Costless Rush](#There-Cannot-Be-a-Costless-Rush)
 18. [It Clearly Turned Into a Scam](#It-Clearly-Turned-Into-a-Scam)
+19. [No Hint For Scoffs and Dismissal](#No-Hint-For-Scoffs-and-Dismissal)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -233,4 +234,20 @@ are then proof that it is a small world.
 The issue with the purist perspective of institutions being boss is that there is no fair chance for anything different, to begin with. If conservatism became the only thing, institutions will divert any difference into these designated sinkholes, out of sight and out of mind of the official gleaming representation. Then the institutions want to remain authority but cannot be funded anymore, under conservative rations. Now would that be a scam? 
 
 It looks like some people have a problem letting go with not getting paid. Some are trying to benefit as much as possible from the bait-and-switch. But they made the world so small. A lot of incompatibles are going to wind up getting bunched together. 
+d
+## No Hint For Scoffs and Dismissal
+
+It is a common human reaction to what they do not want to see or hear. Downplayed, like the minor characters from neo-Victorian dramas.  
+
+Apathy grows. Malice turns more cryptic during the cooling phase. No one is supposed to know when the phase dips back up again, so that the malice can strike out suddenly. 
+
+A Catholic with a bone to pick. His father was a con artist. His family was picked on, and he blames Protestants for it. He turned to dark business to get by. On one occasion, he tried to play Filipinos and other Asians against Koreans, promising the winner Bitcoin. A global transnational action-packed tale. If anyone important scoffs at this plot, this plot would definitely not hit the Hollywood big screen. Of fiction and fantasia. The plot would sell tickets because there would be offense and action and drama in it. But the underlying message it sends on certain cultural values, and how modern-day America's tentacles operate would score low on global opinion. 
+
+A snobby bourgeious that had no academic interests. A mediocre student at best. All she talks about are celebrities and food and trivial details on her co-workers. And she is not trying to crack any jokes. She is being dead-serious and has these things to share, in the name of her self-expression or whatever. Another great plot for the television screen. A sit-com maybe, albeit the plot is rather stereotypical at this point. Nickelodeon has already aired shows that focus on personalities such as these. It sure would not match up with the classics, but it would be a reminder, another edition to that television genre. Bourgeious idiocy. Would have been marked for death in a commie country, spared the gas chamber in Nazi Germany, and looked at with suspicion in Feudal Japan.
+
+Theatrics aside, the quality of communication dies down under scoffs and dismissal. The peacekeepers intend for these forces to fade away. Some of the people who feel marked for damnation wait for the time to prey. 
+
+The complexity of human nature transcends the fundamentals. The fundamentals of the natural world do not accomodate for learned behaviors and chosen sentiments to hold onto. Fundamentalists try very hard to reconcile their cultural and personal preferences with these fundamentals. One common approach is to completely decline to explain, but just go with it. Just claim these arbitrary matters to be part of the fundamental. An unbreakable self-righteousness, per se. 
+
+Scoffs and dismissal. Letting these forces of hold-ups and nuisances. Patience becomes just as worthless as any other devalued thing. 
 
