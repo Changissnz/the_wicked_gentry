@@ -258,7 +258,7 @@ Britain fought the 13 colonies with the help of many Hessian mercenaries. At the
 
 Identities shift, to some degree, in a family tree from one generation to the next, the shifts going along with allegiances. 
 
-Mercenary mentalities are interesting because they point to problems with the public sector. Despite orthodox beliefs in their lack of allegiance, there is sometimes overwhelming evidence to support claims of mercenary skill being top-market, whenthe public sector also falls under market dynamics. 
+Mercenary mentalities are interesting because they point to problems with the public sector. Despite orthodox beliefs in their lack of allegiance, there is sometimes overwhelming evidence to support claims of mercenary skill being top-market, when the public sector also falls under market dynamics. 
 
 Socialism demands that some kinds of likenesses transcend priorities and qualities that would actually mean very much in the objective sense. These demands become so great that,during peacetime, a lethargy sets in. These Ages of Questioning no more. The questions are aimed at them, the others. Socialism does not like to declare liabilities are enhanced. Socialism demands commitment and the taxation process, given the math of these numbers, should roughly equal out to zero gain per person. Quite scientific in likeness to Newton's Second Law, although the processes may not be so neat and orderly. 
 
