@@ -278,4 +278,8 @@ Mercenary identities go by a different ranking in prestige. They fight for arist
 
 Pay a black man more than a Mexican man because he can play basketball better, and a Mexican man more than a Chinese man because he can labor more and has cartel contacts, and a lot of people would be cool with that. No disrespect, but the emphasis on identity and the financial disparity make the racial mentions relevant. It's also like a Catholic that held a grudge against all the Asians involved in the Vietnam War, no matter how many Asians died by Asian hands. It was as though the land was a business matter with the expected course being French, Japanese, then American trade, when historical precedent clearly favored Vietnam to resume its role as one of China's pet snakes, only this time achieving the title of winner against a Western power, at the cost of 1-2 million dead. Identity and mercenaries. The Domino Effect. 
 
-The Russians, right? It was the Russians that did all that. 
+"Millions...millions". That's what the current American president,Truml, said. The short and simple phrasing is different to what JFK said, "ask not what your country can do for you, but what you can do for your country", which happens to resonate a lot with some of the Vietnamese immigrants, especially the ones that did not fight in the war. 
+
+The Russians, right? It was the Russians that did all that.
+
+
