@@ -23,6 +23,7 @@ A series of articles illustrating how far great things can fall. These are not g
 17. [There Cannot Be a Costless Rush](#There-Cannot-Be-a-Costless-Rush)
 18. [It Clearly Turned Into a Scam](#It-Clearly-Turned-Into-a-Scam)
 19. [No Hint For Scoffs and Dismissal](#No-Hint-For-Scoffs-and-Dismissal)
+20. [The Mercenary Identity](#The-Mercenary-Identity)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -251,3 +252,26 @@ The complexity of human nature transcends the fundamentals. The fundamentals of 
 
 Scoffs and dismissal. Permitting these forces of hold-ups and nuisances. Patience becomes just as worthless as any other devalued thing. 
 
+## The Mercenary Identity
+
+Britain fought the 13 colonies with the help of many Hessian mercenaries. At the time, there was not really a Prussia. 
+
+Identities shift, to some degree, in a family from one generation to the next, the shifts goig along with allegiances. 
+
+Mercenary mentalities are interesting because they point to problems with the public sector. Despite orthodox beliefs in their lack of allegiance, there is sometimes overwhelming evidence to support claims of mercenary skill being top-market, whenthe public sector also falls under market dynamics. 
+
+Socialism demands that some kinds of likenesses transcend priorities and qualities that would actually mean very much in the objective sense. These demands become so great that,during peacetime, a lethargy sets in. These Ages of Questioning no more. The questions are aimed at them, the others. Socialism does not like to declare liabilities are enhanced. Socialism demands commitment and the taxation process, given the math of these numbers, should roughly equal out to zero gain per person. Quite scientific in likeness to Newton's Second Law, although the processes may not be so neat and orderly. 
+
+The private sector gains. Some unions even belong to the private sector.Then when the time calls for it,the talent is dragged out of the holes of the private sector. They are to fight for the general public, but they can remain under privatized chains of command. They also do not have to fork over all their capital every tax season. 
+
+What would motivate someone to work under mercenary interests? Surely, the extra talent they have could be exploited against them. Their extra talent might just be pushed further than the norm expected of the public sector. 
+
+The answer might come down to the semantics of what is and isn't. Other answers might include valuable details of the nation-state's social arrangements. Maybe the citizenry of that nation-state cannot or do not want to fully commit. 
+
+Allowing for mercenary interests work under certain conditions. Maybe the sponsors of the mercenary activity have things to sell and ways to pay off debt. Allocating for mercenaries also work in dealing with demands for diversification. Suppose a remote branch of an organization headquartered at home wants to split off, complete their objectives their way. Mercenaries?
+
+Mercenaries typically cannot afford to prolong conflict. Their skills, honed better than many of the public, are counter-balanced by their different survivalist strategy. Many feel as though they do not have to fight past an extent. Some were not forced into the conflict. They chose to start the conflict. 
+
+Mercenary mentalities remain part of capitalist nation-states, through war and peace. 
+
+Mercenary identities go by a different ranking in prestige. They fight for aristocrats instead of trying to be one of them. They are minorities. These identities compensate for misunderstanding by fighting for capital from the capital state.  
