@@ -245,7 +245,7 @@ A Catholic with a bone to pick. His father was a con artist. His family was pick
 
 A snobby bourgeious that had no academic interests. A mediocre student at best. All she talks about are celebrities and food and trivial details on her co-workers. And she is not trying to crack any jokes. She is being dead-serious and has these things to share, in the name of her self-expression or whatever. Another great plot for the television screen. A sitcom maybe, albeit the plot is rather stereotypical at this point. Nickelodeon has already aired shows that focus on personalities such as these. It sure would not match up with the classics, but it would be a reminder, another edition to that television genre. Bourgeious idiocy. Would have been marked for death in a commie country, spared the gas chamber in Nazi Germany, and looked at with suspicion in Feudal Japan.
 
-Theatrics aside, the quality of communication dies down under scoffs and dismissal. The peacekeepers intend for these forces to fade away. Some of the people who feel marked for damnation wait for the time to prey. 
+Theatrics aside, quality of communication dies down under scoffs and dismissal. The peacekeepers intend for these forces to fade away. Some of the people who feel marked for damnation wait for the time to prey. 
 
 The complexity of human nature transcends the fundamentals. The fundamentals of the natural world do not accomodate for learned behaviors and chosen sentiments to hold onto. Fundamentalists try very hard to reconcile their cultural and personal preferences with these fundamentals. One common approach is to completely decline to explain, but just go with it. Just claim these arbitrary matters to be part of the fundamental. An unbreakable self-righteousness, per se. 
 
