@@ -256,7 +256,7 @@ Scoffs and dismissal. Permitting these forces of hold-ups and nuisances. Patienc
 
 Britain fought the 13 colonies with the help of many Hessian mercenaries. At the time, there was not really a Prussia. 
 
-Identities shift, to some degree, in a family from one generation to the next, the shifts goig along with allegiances. 
+Identities shift, to some degree, in a family tree from one generation to the next, the shifts going along with allegiances. 
 
 Mercenary mentalities are interesting because they point to problems with the public sector. Despite orthodox beliefs in their lack of allegiance, there is sometimes overwhelming evidence to support claims of mercenary skill being top-market, whenthe public sector also falls under market dynamics. 
 
