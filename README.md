@@ -310,7 +310,7 @@ Ultimately, though, characterizing "business interests" and "militarism" in rela
 
 In black and white terms, red would be white. Black and white terms cannot capture every thing in full without distortion. So to maintain focus on the subject, the color is "red", not "white".  
 
-Red team is to be the aggressor. Red team offers lessons to those challenged. But like a teacher that has already taught the subject adequately to a student, the teacher must assume other implicit roles to maintain a higher status over the student. The teacher would have to be a sort of authority figure, from that point on, where their statements no longer teach or implore discovery. Their statements are commands, forcibly guiding opinion and suppressing curiosity. 
+Red team is to be the aggressor. Red team offers lessons to those challenged. But like a teacher that has already taught the subject adequately to a student, the teacher must assume other implicit roles to maintain a higher status over the student. The teacher would have to be a sort of authority figure, from that point on, where their statements no longer teach or implore discovery. Their statements become commands, forcibly guiding opinion and suppressing curiosity. 
 
 The Ancient Romans, as well as colonial Great Britain, employed the color red in their armies. Color psychology was already well-known back then. The noxious and bright hue signifies an aggression, and this aggression is falsely equivocated with being pro-active. The hue is also associated with heat and intimidation. Color psychology is not entirely child's play, but it is also not entirely revealing of the states employing it. 
 
