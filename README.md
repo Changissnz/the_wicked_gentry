@@ -25,6 +25,7 @@ A series of articles illustrating how far great things can fall. These are not g
 19. [No Hint For Scoffs and Dismissal](#No-Hint-For-Scoffs-and-Dismissal)
 20. [The Mercenary Identity](#The-Mercenary-Identity)
 21. [The Military Landscape](#The-Military-Landscape)
+22. [Slaughtering Red Team](#Slaughtering-Red-Team)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -304,3 +305,20 @@ A nation-state with a large standing military that cannot push past its boundari
 Mysteries. Military asks, "what tech does the enemy use, and their supply chains?" A civilian asks, "what is this Arab doing making millions of dollars in cryptocurrency", in a self-loathing kind of way, until they discover the Middle East is a mess with a lot of aggressive traders trying to network with the many other corners of the world. 
 
 Ultimately, though, characterizing "business interests" and "militarism" in relational differences between the nature of their arbitrariness is not a formulaic process that can yield definitive solution in states of flux. 
+
+## Slaughtering Red Team 
+
+In black and white terms, red would be white. Black and white terms cannot capture every thing in full without distortion. So to maintain focus on the subject, the color is "red", not "white".  
+
+Red team is to be the aggressor. Red team offers lessons to those challenged. But like a teacher that has already taught the subject adequately to a student, the teacher must assume other implicit roles to maintain a higher status over the student. The teacher would have to be a sort of authority figure, from that point on, where their statements no longer teach or implore discovery. Their statements are commands, forcibly guiding opinion and suppressing curiosity. 
+
+The Ancient Romans, as well as colonial Great Britain, employed the color red in their armies. Color psychology was already well-known back then. The noxious and bright hue signifies an aggression, and this aggression is falsely equivocated with being pro-active. The hue is also associated with heat and intimidation. Color psychology is not entirely child's play, but it is also not entirely revealing of the states employing it. 
+
+Just as black and white can be used to establish orientation, red and blue are. Mainstream connotations, especially to primary colors, can be very wrong on the specifics. 
+
+Why is Red Team always up in other people's affairs? They keep up with their advances. They think crises immediately demand their protection. They materialize intellect. They only want to know the methodology. They believe more in owning the material than the process of producing that material. See...these assumptions based on the color red in Red Teaming are not entirely easily explainable and seem to be unfair. Red Team would say that it is irrational. It's typical of Red Team to step up to the challenge. They are, after all, supposed to be the pro-active ones. 
+
+If Blue is scientific, then Red is socialist. But Red Team could, in fact, be motivated about its high status and capital. Red Team, despite being socialist or not, cannot operate without reference to the other side. Their target is the other side. The merit of their strength rests on defeating the other side. Whereas Blue Team dwindles into states of melancholy and self-assurance, taking matters for granted as they float along in life, Red Team focuses on the timeliness of its operations. All fires go out, so must be used. 
+
+Color psychology becomes inaccurate in explaining the specifics. It could be unfair to characterize Red Team as anti-intellectual, materialistic, and power-hungry. It is certainly inaccurate to state Red Team will always prevail. It is just a color, first and foremost. How long can a color maintain complete connection to its recognized connotations? 
+
