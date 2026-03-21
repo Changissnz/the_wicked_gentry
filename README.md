@@ -26,6 +26,7 @@ A series of articles illustrating how far great things can fall. These are not g
 20. [The Mercenary Identity](#The-Mercenary-Identity)
 21. [The Military Landscape](#The-Military-Landscape)
 22. [Slaughtering Red Team](#Slaughtering-Red-Team)
+23. [Shrinking the World](#Shrinking-The-World)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -322,3 +323,16 @@ If Blue is scientific, then Red is socialist. But Red Team could, in fact, be mo
 
 Color psychology becomes inaccurate in explaining the specifics. It could be unfair to characterize Red Team as anti-intellectual, materialistic, and power-hungry. It is certainly inaccurate to state Red Team will always prevail. It is just a color, first and foremost. How long can a color maintain complete connection to its recognized connotations? 
 
+## Shrinking the World 
+
+If it was up to them, they'll just keep rewriting the rules in their favor. Who are they? Human beings, for sure, the only creature on this planet capable of the kinds of rationality recognizable across the global spectrum, of comparable variants. 
+
+If the person is already settled, they won't feel it. The settled ones can become unsettled during life events such as midlife crises. 
+
+Consider some town systems in existence today. Barely any money for public infrastructure. The cause is community and welfare. There is no work or play worth sticking to. An idyllic interpretation of freedom. No one would really know what or how to bargain for something better, since it is a small world. The hierarchy shows its representative face, but its agents have an undue right to privacy and can operate in secrecy. There is no improving a town-based system without greatly increasing imports and attracting skilled workers. The town would turn into a city then. 
+
+Acculturation goes on and continues without interference. The long delayed capital may come, but by then is at least a slight, similar to the curse of getting passed the crown. It comes with a lot of strings attached. That would have tolerable before these extrajudicial trials. Now with knowledge comes preemption, responsibilities, and restraints, under the vice-grip of the principle that little flaws expressed can shatter the image of perfection and righteousness. Talk attempts to become serious. Offensive insults take the form of allusions to escape accountability. Salaries listed on job boards are for shell companies run by surveillance agencies. 
+
+Every organization, every identity wants to be an institution. These desires bear dark clouds that blend aspirations from the little people with darkness. There is nothing more important for the townspeople than to stay moderately connected, enough to remain one of the destinations for imports. The utilities need to be done. There is no such thing as a noble endeavor that requires publicity. But without publicity, there are no expectations necessary to deliver. 
+
+In a certain town, there is an aging lady that still thinks she is young. She has nothing to do but care about other people, and she is able to do that because she never had to take up the work of an indentured servant, labor in the fields and mines like laymen, or have to live a life of immaterial nothingness, that is, the scholastic route without patronage from the patrician class, a class with people that only say nice things out of their ownership of media companies spewing their whimsical agendas of war and riches, knowing full well that openly promoting death and destruction would mean a threat for their end, in a world worked by a diversified workforce without the time or the means to know the real causes they are working for. Simply put, God becomes the default answer. 
