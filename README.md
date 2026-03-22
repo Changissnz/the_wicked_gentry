@@ -427,7 +427,7 @@ Some felt they had to make apologies. They had to do so through the utilization 
 
 Things keep sliding into this depression. The anger gets liberated. These sentiments have been fostering for quite some time. Even the more benevolent ones have had to turn their back for fear of voicing the wrong statements, from not being able to control the fomenting inner chaos. Epiphets get stated in seriousness. Sweeping generalizations and blanket statements become promoted, so that the noise is deprioritized. 
 
-So what, really? What were the underlying conditions that encouraged that harsh language? So that must be the end of the discussions end, if the moral authorities on speech would have it their way. 
+So what, really? What were the underlying conditions that encouraged that harsh language? So that must be the end of the discussions then, if the moral authorities on speech have it their way. 
 
 Harsh language. Then cancelled organizations. And now...with the suspicions going on, with some begging for matters to get worse still... a harsher silence takes hold. 
 
