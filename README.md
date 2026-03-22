@@ -29,6 +29,7 @@ A series of articles illustrating how far great things can fall. These are not g
 23. [Shrinking the World](#Shrinking-The-World)
 24. [Strongman Logic](#Strongman-Logic)
 25. [They Were Doxxing Everything, Lies Included](#They-Were-Doxxing-Everything-Lies-Included)
+26. [Pay Up and Get Out](#Pay-Up-and-Get-Out)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -370,3 +371,19 @@ High-frequency aggression is attracted to a particular subclass of perfect infor
 They said, at the start, that they wanted truth. They said they wanted this so that there would be no more cloak-and-dagger games. Then every survivor not of their kind ends up half-dead inside, buried three feet instead of six feet dead, and their assurances have to be listened to in the manner of the Gospel. Then these truths rank everyone involved, lining them up to enter into the Black Box of no return. Nothing else can be stated, as fact, after that. 
 
 Welcome to the civilized side of the War Machine. 
+
+## Pay Up and Get Out
+
+It is two demands lumped into one. For many, it is an ideal. But it is a demand that becomes regarded as too good to become true. First, pay up: what is owed, fork it over in full. Then, get out of sight and mind. There is a continuity even in chaos. So in an orderly world, there is a long line of associations and connotations and so-called loyalties that follow someone. And this just is not right for independence. It becomes these inklings people have of you that cannot be wiped off the board. You would have to go out of your way to explain. But since they do not directly voice it to you, there is no conversation that can take place. So it becomes a passive-aggressive state of affairs. And it is exactly this state where profiteers will keep going to for material and ideas, enriching themselves first since they are already lined up at the exclusive government subsidies handout line. 
+
+It seems that modern-day developments have actually amplified demands for human-to-human dependence. There is just too much underneath, the labor, the infrastructure, those getting by on welfare, corporate leeches for there to be independence. Supply chain is another dependency. 
+
+Paying someone enough for them to move on would not sit right with a lot of people. Here is another problem with human beings: they want to sympathize with other people, but they also enjoy seeing tragedy and ruin on other civilizations, as well as people greater or lesser than them for arbitrary reasons. This statement is true. Believe it or try to disprove it. 
+
+Payment comes with strings attached. Payment then gets factored into the person's new equilibrium. Little do they know, soon, the rug gets pulled beneath them for the umpteenth time to leave them in a new kind of decrepit condition, as fitting as historical precedent dictates that to be. This is not a good or accurate thought because it points to the conspiratorial nature of humankind, as if the more control human societies of individuals and identities try to "fix" things, the more ruinous the aftermath. Maybe it is because human beings have difficulty finding steady roles to play, without going under the direction of authoritative organizations. 
+
+Getting out of sight and mind of someone is a forceful demand, despite how little that someone might want to be there. When the demand is made, antagonism might ignite out of hurt feelings or political pragmatism. So when issued that demand, there can be a natural urge to rebel against it, to remain as an influencing agent on that person's life trajectory, so that no matter how much money they can accumulate, how much power they can consolidate, there would still be lost time due to misdirection and actions taken under the influence, actions that would not have been taken in a more independent state, thus ruining the personal reception of outcomes believed to be engineered by forces not of their own. 
+
+"Pay up and get out" can be done. So everyone leaves. But before they do, out of their interests, they make sure there will be roadblocks, blockades, and conditions that would afflict that one with the demands for the foreseeable future. They do not even have to say or do anything to that person. They could just send bad word and form rings to starve that person into oblivion. 
+
+Here is a pessimistic outlook for a world that cannot embark on new things out of respect for tradition. This is a world where immaterial sentiments get recycled. 
