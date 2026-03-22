@@ -378,7 +378,7 @@ It is two demands lumped into one. For many, it is an ideal. But it is a demand 
 
 It seems that modern-day developments have actually amplified demands for human-to-human dependence. There is just too much underneath, the labor, the infrastructure, those getting by on welfare, corporate leeches for there to be independence. Supply chain is another dependency. 
 
-Paying someone enough for them to move on would not sit right with a lot of people. Here is another problem with human beings: they want to sympathize with other people, but they also enjoy seeing tragedy and ruin on other civilizations, as well as on people greater or lesser than them for arbitrary reasons. This statement is true. Believe it or try to disprove it. 
+Paying someone enough for them to move on would not sit right with a lot of people. Here is another problem with humanity: human beings want to sympathize with other people, but they also enjoy seeing tragedy and ruin on other civilizations, as well as on people greater or lesser than them for arbitrary reasons. This statement is true. Believe it or try to disprove it. 
 
 Payment comes with strings attached. Payment then gets factored into the person's new equilibrium. Little do they know, soon, the rug gets pulled beneath them for the umpteenth time to leave them in a new kind of decrepit condition, as fitting as historical precedent dictates that to be. This is not a good or accurate thought because it points to the conspiratorial nature of humankind, as if the more control human societies of individuals and identities try to "fix" things, the more ruinous the aftermath. Maybe it is because some human beings have difficulty finding steady roles to play, without going under the direction of authoritative organizations. 
 
