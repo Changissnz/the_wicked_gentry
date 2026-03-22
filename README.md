@@ -30,6 +30,7 @@ A series of articles illustrating how far great things can fall. These are not g
 24. [Strongman Logic](#Strongman-Logic)
 25. [They Were Doxxing Everything, Lies Included](#They-Were-Doxxing-Everything-Lies-Included)
 26. [Pay Up and Get Out](#Pay-Up-and-Get-Out)
+27. [The Southern Faggot and the Northern Confederate](#The-Southern-Faggot-and-the-Northern-Confederate)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -387,3 +388,25 @@ The demand of getting out of someone's sight and mind is a forceful one, despite
 "Pay up and get out" can be done. So everyone leaves. But before they do, out of their interests, they make sure there will be roadblocks, blockades, and conditions that will afflict that one with impossible demands for the foreseeable future. They do not even have to say or do anything to that person. They could just send bad word and form rings to starve that person into oblivion. 
 
 Here is a pessimistic outlook for a world that cannot embark on new things out of respect for memory. This is about a world where immaterial sentiments get recycled. 
+
+## The Southern Faggot and the Northern Confederate
+
+If the word "faggot" is not used, some might brush off the title, deflecting the hurt to the weaker of their bunch.  
+
+The United States cannot be simply characterized. There is the old trope of Northern progressivism and Southern despotism. This is simply not accurate, no matter how low-quality the Global South, and by extension, the United States South is. 
+
+Slavery of black Americans is no more. Let it be fully known and understood that this ethno-slavery was an institution, an official institution sponsored by the various state apparatusses of the Deep South. It was not entirely businesses that had to defend against government intrusion. Government remained by its side up through the Civil War, when government chose to attempt separation into another nation-state. Labor of this kind is labeled as "forced" some decades after the Civil War. That just demonstrates the dangerous effect of mislabeling. Slave labor must have been justified as compliant labor. It was, by a fair account, an insult to those peoples' intelligence even if they were never whipped or suffered in the fields. 
+
+Fast forward to the early 2000s through today, and the landscape has changed much. Black Americans have followings, by the media they produce and in big sports. As with any ethnic group that has found its footing, there will always be demands for more and more, after the ethnic group has achieved commercial representation and a steady level of comfort. In fact, the years since 2016 have bore waves of unprecedented de-institutionalization. NASA, a government agency, is no longer the one big space agency. It is SpaceX, a privately-owned enterprise run by a foreign-born US citizen. 
+
+So institutions cannot be trusted anymore, it seems. However, the big questions in these changes between official bodies and unofficial executives is that there is actually still hierarchy. Many Hispanics coming into the country will be forced to reckon with the challenge that they can be no better than a Peon. It pays for an Asian immigrant entering the United States to come from a commercial family. They would be much better connected for academic and commercial success, these the usual institutional pathways that do not require more integration with the American populace. 
+
+How is a person that wants to be in charge supposed to maintain good standing with the people they are supposed to lead, when there are these crises such as debt crises, multinational fallouts, and institutional corruption reported across the board? That is a big question. And unfortunately, the answers given might be nothing short of their giving away goods that do not belong to them. 
+
+Some members of today's American leadership will still be driven out of power, despite attempts at consolidation. This should not be interpreted as anything but a recall of the natural order of affairs. Jobs have been wiped out. Social security is being threatened. The full empirical details are not there for public viewing. Propaganda is in with mass media. 
+
+Southern faggots are outliers to the norms of the strict orthodox South. Northern confederates do not like minorities, by default. They view their territories as city-states to be guarded against everyone else. 
+This does not get to all of the outliers of these two broad categories. How is a morbidly obese person supposed to demonstrate good work ethic, that good Protestant work ethic? At a desk, signing papers to claim other people's money? How is a person that says they want to make America technologically great supposed to be trusted, when their family has set up a decades-long trade agreement with China for imported electronics? How is a stupid person supposed to feel when they can just breeze by in college and land a high-paying government or corporate position straight out of school? How is a college graduate supposed to feel when they attended higher education to become an engineer, only to discover the commercial environment rigged the odds against them? And they're just supposed to accept that and serve in the United States Navy, to demonstrate their patriotism? How is a racist Catholic supposed to make things right, after they felt so humiliated by how the Russians schooled them that they took their political sabotaging efforts to Asian and Hispanic communities? 
+
+Some people got it twisted. Geography is almost a dictator, but the attributes of the United States South and North have merged together through a lot of intermingling of the worst and regressive kinds. There might not another civil war between the North and South anytime soon. But there is still a lot of historical as well as manufactured hate. The social contracts got broken. A lot of people do not feel as though they have the duty to accept any of these lesser deals. 
+
