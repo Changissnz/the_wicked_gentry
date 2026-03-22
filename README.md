@@ -31,6 +31,7 @@ A series of articles illustrating how far great things can fall. These are not g
 25. [They Were Doxxing Everything, Lies Included](#They-Were-Doxxing-Everything-Lies-Included)
 26. [Pay Up and Get Out](#Pay-Up-and-Get-Out)
 27. [The Southern Faggot and the Northern Confederate](#The-Southern-Faggot-and-the-Northern-Confederate)
+28. [Harsh Language and Harsher Silence](#Harsh-Language-and-Harsher-Silence)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -412,5 +413,21 @@ Some people got it twisted. Geography is almost a dictator, but the attributes o
 
 If some Americans do not end up behind bars for life or dead from unnatural causes, injustice will continue. Injustice always continues, regardless. These discussions that center so much on identity require selfish acceptance of what is and is not. The language denies communication for more constructive and benign purposes. Language of this kind is always used when the proposed ways to better human society clashes with the ideals of harmony. And language of this kind is a helpful reminder to those who can know better than rely on these varieties of communicative tools for agenda that could always backfire on them, given the elevated risks that come with escalating power-plays. 
 
+## Harsh Language and Harsher Silence  
 
+The fire eventually goes out, but it is not the only elemental force available. Where harsh language is metaphor for fire, when harsh language really is more like piercing wind, harsher silence is much more intent on offense past the scorch of communication. 
+
+On a downward spiral, one would think communication naturally leads to more reconciliation. But that is a faulty assumption. Consider two people that were uncomfortable interacting with each other because of their roots or whatever, at the beginning. They initiate contact, form pseudo-bonds, but then the connection shatters from the fragility of trying to fit two into a dynamic that somehow "destroys their individual values", for lack of better words. 
+
+Communication can lead to more reconciliation. But in many cases, material exchange and static obligations must be set to offset any human whims for anomalies that benefit them. With these guarantees in place, private liberties become established to conceal intent and divulge secrecy. There are still two different things and these things are not interchangeable. Boundaries and bridges. 
+
+Misconception takes hold of societies. Advanced societies will recognize the warning signs well before those that want to continue pretending. Sometimes, the premonition is no step towards solution. The premonition could become an unhealthy fixation: no matter the knowledge on the problem, the problem will keep growing larger until it is the only problem before the end. 
+
+Some felt they had to make apologies. They had to do so through the utilization of considerate language and respectability politics. And then individual problems are ignored. The most unscrupulous and greedy come to dominate, taking over from the previous generation's worst of the worst, coincidentally, the ones making up a sizable portion of the leadership. 
+
+Things keep sliding into this depression. The anger gets liberated. These sentiments have been fostering for quite some time. Even the more benevolent ones have had to turn their back for fear of voicing the wrong statements, from not being able to control the fomenting inner chaos. Epiphets get stated in seriousness. Sweeping generalizations and blanket statements become promoted, so that the noise gets sorted out. 
+
+So what, really? What were the underlying conditions that encouraged that harsh language? So that must be the end of the discussions end, if the moral authorities on speech would have it their way. 
+
+Harsh language. Then cancelled organizations. And now...with the suspicions going on, with some begging for matters to get worse still... a harsher silence takes hold. 
 
