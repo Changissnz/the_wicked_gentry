@@ -367,6 +367,6 @@ Perfect information is benign in the academic context, where people must take ex
 
 High-frequency aggression is attacted to a particular subclass of perfect information, the real-time empirical details that can be observed. Information distributed through scientific instruments do not need universal principle besides from the one principle of causative phenomena. Perfect information is for use in games. And sometimes, the objective of winning is most prioritized, even when the means of perfect information also need to coordinate with disinformation. 
 
-They said, at the start, that they wanted truth. They said they wanted this so that there would be no more cloak-and-dagger games. Then practically everyone not of their kind ends up half-dead inside, buried three feet instead of six feet dead, and their assurances have to be listened to in the manner of the Gospel. 
+They said, at the start, that they wanted truth. They said they wanted this so that there would be no more cloak-and-dagger games. Then practically everyone not of their kind ends up half-dead inside, buried three feet instead of six feet dead, and their assurances have to be listened to in the manner of the Gospel. Then these truths rank everyone involved, lining them up to enter into the Black Box of no return. Nothing else can be factually stated after that. 
 
 Welcome to the civilized side of the War Machine. 
