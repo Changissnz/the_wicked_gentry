@@ -386,4 +386,4 @@ Getting out of sight and mind of someone is a forceful demand, despite how littl
 
 "Pay up and get out" can be done. So everyone leaves. But before they do, out of their interests, they make sure there will be roadblocks, blockades, and conditions that will afflict that one with impossible demands for the foreseeable future. They do not even have to say or do anything to that person. They could just send bad word and form rings to starve that person into oblivion. 
 
-Here is a pessimistic outlook for a world that cannot embark on new things out of respect for tradition. This is about a world where immaterial sentiments get recycled. 
+Here is a pessimistic outlook for a world that cannot embark on new things out of respect for memory. This is about a world where immaterial sentiments get recycled. 
