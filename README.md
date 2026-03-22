@@ -27,7 +27,8 @@ A series of articles illustrating how far great things can fall. These are not g
 21. [The Military Landscape](#The-Military-Landscape)
 22. [Slaughtering Red Team](#Slaughtering-Red-Team)
 23. [Shrinking the World](#Shrinking-The-World)
-24. [Strongman Logic](#Strongman-Logic) 
+24. [Strongman Logic](#Strongman-Logic)
+25. [They Were Doxxing Everything, Lies Included](#They-Were-Doxxing-Everything-Lies-Included)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -353,3 +354,16 @@ When borderless collaboration goes on an irreversible decline for the era, corpo
 The outward manifestation of xenophobia against foreign interests is closer than farther to the final straw of collaboration with domestic interests. Services no longer required and imported goods are destroying the domestic economy. Common rationales. Domestic interests, themselves, are factional in large countries, oftentimes splitting themselves up into regional interests. For example, the United States has a "Sun Belt", a "Rust Belt", an "Empire State", a "West Coast", a "Neo Deep South", and a "New England". These are some of the regional identities. And the characters that come out of them like to think of themselves as whole and complete people, but there are obviously preferences underneath their policies. Geography might not be entirely destiny, but it is a dictator that provides strongmen with the false idea that they should take up the mantle to command. If geography is almost destiny and it is a dictator to the people living in it, then why not try to add another layer of authority under the throne of geography? Strongman logic demands this, and strongman logic would say that it belongs to "strong" men. 
 
 Many people not caught between conflicting interests do not want to enter into the mix. The mix is almost always political war at the onset, where escalation is possible and in dreary times, the council on war crimes no longer in session. Liberalism requires continuity to recycle its merit and preserve its credit. Liberal policies can fall prey to design, analogically a wheel built to be too unique. Rhetoric from strongman logic demands separation from the extras and then integration of the remainder. This is quite convincing to many that have experienced such things as "love with the other side", business with the other side, and disinformation campaigns, many of these campaigns actually propagated by domestic interests under foreign guises. So even if there is no guarantee circumstances can really change for the better under the leadership of the strongman, there are attitudes of grave concerns, survivalist mentalities that demand questions be set straight with the right answers. Letting the strongmen take charge does appear to be a valid way to alleviate concerns for the time. Matters are just so confusing nowadays and there have to be some assurances from the leadership. 
+
+## They Were Doxxing Everything, Lies Included
+
+There are more ways to efficiently monetize on information in this Information Age. It seems most of the critical infrastructure is up and running, and most people are at liberty to utilize these lines of transmission for their profits.
+
+"Where do we draw the lines between truth and fiction?" What a cliche question. Maybe the author of the book,The Inconvenient Truth, can help answer that. 
+
+In higher education, professors introduce their students to the concept of perfect information. But since many people, educated or not, get by just fine with knowing only the basics such as arithmetic, perfect information is an ideal many will misuse or falter on. This fact surely gives those populists, rage of Common Red and motivated by Red Fear, credit for their bombastic power-plays that rarely place numbers outside of their favor. This proclivity of theirs is awfully alien, for in many Western countries, they speak of freedom when they mean autonomy in their favor, scoff at Eastern fatalism, namely, the use of numbers to ascribe destiny to individuals, yet so many possible roads will forever reamin unpaved now with these trajectories they are a part of, the gravity so great that the only positive thing they can truthfully do is be pro-active, somethig that they denounced their opponent predecessors of not being. 
+
+Perfect information is benign in the academic context, where people must take extra steps of application to make that information impactful. Like a novel product that has escaped the laboratory, perfect information can become an objective in the ranks of adversary. Then the credibility of information pipelines becomes questionable, encouraging people to resort back to the fundamental blocks that they leapt off on in pursuit of their gambles. 
+
+High-frequency aggression is attacted to a particular subclass of perfect information, the real-time empirical details that can be observed. Information distributed through scientific instruments do not need universal principle besides from the one principle of causative phenomena. Perfect information is for use in games. And sometimes, the objective of winning is most prioritized, even when the means of perfect information also need to coordinate with disinformation. 
+
