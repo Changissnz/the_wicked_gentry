@@ -436,7 +436,7 @@ Harsh language. Then cancelled organizations. And now...with the suspicions goin
 
 The facts of the matter have already gone down in history. But stones get broken up, computer memory gets recycled, and there might be nothing but prejudices based on identity and alliances, the two not always one and the same for obvious reasons, remaining. 
 
-During this second quarter of the 21st century, there seems to be, according to the mainstream hype communication occurring, a "genuine" interest in artificial intelligence that coincides with political and financial interests, interests where deception and contained warfare is permitted. 
+During this second quarter of the 21st century, there seems to be, according to the mainstream hype communication occurring, a "genuine" interest in artificial intelligence that coincides with political and financial interests, interests where deception and contained warfare are permitted. 
 
 Human beings in positions of authority expouse the idea that the societies they oversee should act orderly and predictable. These expectations allow there to be great freedoms as a gift from this obedience, they further promise. Every human being will, during some times in their life, feel the urge to rebel against these illogical chains demanding subservience. The Ancient Roman era of empire contains a lot of evidence of these undefinable pretensions of political machination. In conventional terms, Ancient Greek culture was clearly more liberal, sparing them some of the more negative interpretations of Ancient Roman imperialism. But the scope of their works varies in impact and sincerity, in comparison to the Ancient Roman aspiration for scale and control. 
 
