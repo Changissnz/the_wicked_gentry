@@ -505,7 +505,7 @@ It is like, "whoa. Every female is a priestess now. Every male is the Holy Roman
 
 ## A Tidbit on the Trade War
 
-News flash. Most of the computer hardware coming into the United States is from China or Taiwan. Vietnam got cut into the mix sometime in 2021. And American Big Tech is now predominated by Indians from India. There does not need to be any hard feelings at any demographic. But let these facts stand as true as they may be. And see how all this brazen political rhetoric falters on how to fix America's tech sector. There is no fix possible because that was how the trade deals went since the 1980s. It is hard to put a halt on those trajectories. 
+News flash. Most of the computer hardware coming into the United States is from China or Taiwan. Vietnam got cut into the mix sometime in 2021. And American Big Tech is now predominated by Indians from India. There does not need to be any hard feelings at any demographic. But let these facts stand as true as they may be. And see how all this brazen political rhetoric falters on solutions for America's tech sector. There is no fix possible because that was how the trade deals went since the 1980s. It is hard to put a halt on those trajectories. 
 
 The means of production are not coming back anytime soon. 
 
