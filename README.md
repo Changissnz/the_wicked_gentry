@@ -428,7 +428,7 @@ On a downward spiral, one would think communication naturally leads to more reco
 
 Communication can lead to more reconciliation. But in many cases, material exchange and static obligations must be set to offset any human whims for anomalies that benefit them. With these guarantees in place, private liberties become established to conceal intent and divulge secrecy. There are still two different things and these things are not interchangeable. Boundaries and bridges. 
 
-Misconception takes hold of societies. Advanced societies will recognize the warning signs well before those that want to continue pretending. Sometimes, the premonition is no step towards solution. The premonition could become an unhealthy fixation: no matter the knowledge on the problem, the problem will keep growing larger until it is the only problem before the end. 
+Misconception takes hold of societies. Advanced societies will recognize the warning signs well before those that want to continue pretending, for the intent of pretending is for there to be believers. Sometimes, the premonition is no step towards solution. The premonition could become an unhealthy fixation: no matter the knowledge on the problem, the problem will keep growing larger until it is the only problem before the end. 
 
 Some felt they had to make apologies. They had to do so through the utilization of considerate language and respectability politics. And then individual problems are ignored. The most unscrupulous and greedy come to dominate, taking over from the previous generation's worst of the worst, coincidentally, the ones making up a sizable portion of the leadership. 
 
