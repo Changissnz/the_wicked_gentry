@@ -461,7 +461,7 @@ Political machinations. Biological systems. Two broad categories of systems that
 
 ## Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood
 
-The self-hating variety of Westerner is a dangerous one. No one really knows what their agenda is. They despise children, do not want to have children, and are awfully unpleasant to be anywhere near, let alone interact with. Perhaps self-hating Easterners are just as deadly. However, self-hating Westerners are more prominent, in correlation to the prominence of Western culture's expressivity over that of Easterner rigid rituality. Besides, this tale about to be written is about how some self-hating Westerners worked. 
+The self-hating variety of Westerner is a dangerous one. No one really knows what their agenda is. They despise children, do not want to have children, and are awfully unpleasant to be anywhere near, let alone interact with. Perhaps self-hating Easterners are just as deadly. However, self-hating Westerners are more prominent, in correlation to the prominence of Western culture's expressivity over that of Eastern rigid rituality. Besides, this tale about to be written is about how some self-hating Westerners worked. 
 
 It is these self-hating Westerners that have helped gamble away their fellow citizens' welfare, for reasons unknown. The madness becomes terrible daunting for any person to stomach. Soon enough, no one knows how to make money by working. The self-hating Westerners play themselves as rescuers to the poor and despondent. All the while, the authorities were bogged down and corporate heads cannot care enough about empire, about their own organization, about anything but quarterly profits. 
 
