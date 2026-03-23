@@ -35,6 +35,7 @@ A series of articles illustrating how far great things can fall. These are not g
 29. [The Idea of the Human Machine](#The-Idea-of-the-Human-Machine)
 30. [Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood](#Making-a-Widow-Out-of-Criminal-Conspiracy-and-Foster-Children-Out-of-Bad-Parenthood)
 31. [No One Actually Respects Them](#No-One-Actually-Respects-Them)
+32. [The Professor That Spoke of Redemption](#The-Professor-That-Spoke-of-Redemption)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -474,4 +475,16 @@ And the children. The children remained and were placed into foster care. As dar
 
 They let psychos burn people out in the workplace. They had factories shut down. They sicced mobs onto individuals, and then expect those individuals to feel grateful for the protection. They turned a blind eye to the kleptos, and then had to strike deals with them to take back what was stolen. 
 
-No one in their right mind would reapect them. Be warned. Doing any kind of business with their people will wind up as collaterally damaging. They have one system of doing things if they are organized. The federal republic has another system of doing things. The two do not match. Only put yourself in the middle if you can afford to be a bridge that can stand on its own. 
+No one in their right mind would respect them. Be warned. Doing any kind of business with their people will wind up as collaterally damaging. They have one system of doing things if they are organized. The federal republic has another system of doing things. The two do not match. Only put yourself in the middle if you can afford to be a bridge that can stand on its own. 
+
+## The Professor That Spoke of Redemption
+
+One would think the occupation of professor would be mindful of privacy. But the times were not normal, and it seems one of the students had been put on a blacklist. 
+
+The blacklist is for people that are to be damned. To be on the list, one only had to have been reported to have been in contact with another person on the blacklist. This rule was fundamental to the PageRank algorithm, which will come to be known as a clasic for the early internet. The blacklist is essentially relativity wrapped up around the guise of moral fixtures. But it darkened the visions of everyone on it. It legitimized illegal surveilance, stalking, and even extrajudicial murder through pressure from temptresses, sent by the Devil. 
+
+A spic wielding the Catholic faith, bullying the ching-chings on behalf of his Irish Catholic godfather. A Slav, conducting illegal hacking for the United Kingdom, that also facilitated arms sales to Burmese for their civil war. A Frenchman that cannot mind his own business, but can handle the stolen fortunes of Arabs just fine. 
+
+The blacklist is long and heavy. It is a judgmental list. But it was ultimately from the whims of those that could follow through in only half of the cases. Redemption, it seems, is for those that know the wrongdoer. The term fancies itself as another life for lepers that came in contact with the disease. The term is always somewhere exchanging its morality with Regret, that one that makes money from fabricating alternative pasts. All the mediocre losers switch from hating on the leader, before some of them get killed for misguided anarchy, to wanting the wrongdoers on the blacklist summarily executed. So the blacklist is not pleasant. The blacklist could misguide individuals to go after the weaker ones instead of the wrongdoer. The weaker ones could actually be the wrogdoers, so leaving them in charge of the blacklist wojld spare gem. The wrongdoer could be the one in charge of the blacklist. So another blacklist would have to be written to include them. 
+
+Blacklists are for systemic secrecy to deal with societies, filled with failures dragging the world down. 
