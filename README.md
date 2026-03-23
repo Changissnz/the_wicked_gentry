@@ -523,7 +523,7 @@ Weary efforts and contained attitudes.
 
 No invite to the party? No offense taken. It looks like some things happened. No need for any leftovers either. 
 
-The collective is the objective now. But every person should turn their faces to the wall and do their own work. No interaction allowed. Distracting other people is not peaceful. More work needs to be done, together, alone. 
+The collective is the objective now. But every person should turn their face to the wall and do their own work. No interaction allowed. Distracting other people is not peaceful. More work needs to be done, together, alone. 
 
 Do not divulge anything. The enemy could be anywhere now. The collective is still the objective though. So do not try to be too unique. 
 
