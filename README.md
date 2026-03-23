@@ -521,6 +521,12 @@ Maybe doing these things will allow for reflection. And then do these things to 
 
 Weary efforts and contained attitudes. 
 
+No invite to the party? None taken. It looks like some things happened. No need for any leftovers either. 
+
+The collective is the objective now. But every person should turn their faces to the wall and do their own work. No interaction allowed. Distracting other people is not peaceful. More work needs to be done, together, alone. 
+
+Do not divulge anything. The enemy could be anywhere now. The collective is still the objective though. So do not try to be too unique. 
+
 Nowhere to turn to. First, they want to lead. Then they will leave. Separate parallels. There is no room for two profiting aftermaths. 
 
 Cliches, challenges, and the wrong kinds of rewards. 
