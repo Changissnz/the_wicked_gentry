@@ -521,7 +521,7 @@ Maybe doing these things will allow for reflection. And then do these things to 
 
 Weary efforts and contained attitudes. 
 
-No invite to the party? None taken. It looks like some things happened. No need for any leftovers either. 
+No invite to the party? No offense taken. It looks like some things happened. No need for any leftovers either. 
 
 The collective is the objective now. But every person should turn their faces to the wall and do their own work. No interaction allowed. Distracting other people is not peaceful. More work needs to be done, together, alone. 
 
