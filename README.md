@@ -457,7 +457,7 @@ Some issues that some human beings, clearly too high-ranked to be producing or w
 
 Some members of the U.S. military retire from service, and end up with money unrecognizable to over 90% of the military members. And why? Because of semi-legitimate institutions for soldiers of fortune, where many of the suitable civilian positions simply get passed over to them. These arrangements could be marketed as systems to maximize the utility of the "warrior" class. First, the military, the public sector, right, to be a patriot. Then, after proving their patriotism, they can go run a cybersecurity corporation or something related. That must have been what Ancient Rome did for its "warrior" class, well, at least, those that are also part of the "patrician" class. 
 
-Political machinations. Biological systems. Two broad categories of systems that defy the known dynamical connections of their designs. They are systems if one wanted to be rationalist. They are also systems for people intent on maintain excellent social standing by exemplary obedience. 
+Political machinations. Biological systems. Two broad categories of systems that defy the known dynamical connections of their designs. They are systems if one wanted to be rationalist. They are also systems for people intent on maintaining excellent social standing by exemplary obedience. 
 
 ## Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood
 
