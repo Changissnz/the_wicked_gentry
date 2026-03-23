@@ -531,4 +531,6 @@ Nowhere to turn to. First, they want to lead. Then they will leave. Separate par
 
 Cliches, challenges, and the wrong kinds of rewards. 
 
+Losers were made. The rarer ones, winners, were also made. The power to make losers and winners seems to at least match the power to win or lose. 
+
 The end. 
