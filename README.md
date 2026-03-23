@@ -511,5 +511,5 @@ The means of production are not coming back anytime soon.
 
 Come to think of it, Big Tech is a little like a New East India Company. And it has gotten lame. 
 
-Commercialism dominates America. And beneath it, is a rather lame and boring populace. 
+Commercialism dominates America. And beneath it, a rather spiteful, fearful, and angry populace. 
 
