@@ -33,6 +33,7 @@ A series of articles illustrating how far great things can fall. These are not g
 27. [The Southern Faggot and the Northern Confederate](#The-Southern-Faggot-and-the-Northern-Confederate)
 28. [Harsh Language and Harsher Silence](#Harsh-Language-and-Harsher-Silence)
 29. [The Idea of the Human Machine](#The-Idea-of-the-Human-Machine)
+30. [Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood](#Making-a-Widow-Out-of-Criminal-Conspiracy-and-Foster-Children-Out-of-Bad-Parenthood)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -457,4 +458,14 @@ Some issues that some human beings, clearly too high-ranked to be producing or w
 Some members of the U.S. military retire from service, and end up with money unrecognizable to over 90% of the military members. And why? Because of semi-legitimate institutions for soldiers of fortune, where many of the suitable civilian positions simply get passed over to them. These arrangements could be marketed as systems to maximize the utility of the "warrior" class. First, the military, the public sector, right, to be a patriot. Then, after proving their patriotism, they can go run a cybersecurity corporation or something related. That must have been what Ancient Rome did for its "warrior" class, well, at least, those that are also part of the "patrician" class. 
 
 Political machinations. Biological systems. Two broad categories of systems that defy the known dynamical connections of their designs. They are systems if one wanted to be rationalist. They are also systems for people intent on maintain excellent social standing by exemplary obedience. 
+
+## Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood
+
+The self-hating variety of Westerner is a dangerous one. No one really knows what their agenda is. They despise children, do not want to have children, and are awfully unpleasant to be anywhere near, let alone interact with. 
+
+It is these self-hating Westerners that have helped gamble away their fellow citizens' welfare, for reasons unknown. The madness becomes terrible daunting for any person to stomach. Soon enough, no one knows how to make money by working. 
+
+It just so happens that during this societal deterioration, there was an immigrant family that entered into the country. The father did not know how to support his family. Someone, most likely of Italian descent, contacts him, tells him there is this big score that can be made. They tell him all he has to do is follow this rubric of instructions, and the rubric directly touches on the lives of other people. Then, out of nowhere, says the official sources, the father dies. The mother is left a widow. Now the mother knew full well what her husband was up to, embarking on a gamble that really meant his doom at the end. But it was an immigrant family that came from barbarized societies that were as warm and open as they were irrational in avarice and competition. So the father was encouraged by the mother. The father died. Then some matters caught up to the widowed mother. The mother also died. 
+
+And the children. The children remained and were placed into foster care. As dark as some matters turned out to be, at least someone thought about the children during these times of dark gambits. 
 
