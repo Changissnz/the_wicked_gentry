@@ -472,6 +472,6 @@ And the children. The children remained and were placed into foster care. As dar
 
 ## No One Actually Respects Them
 
-They let psychos burn people out in the workplace. They had factories shut down. They sicced mobs onto individuals, and then expect those individuals to feel grateful for the protection. They turned a blind eye to the kleptos, and then had to strike a deal with them to take back what was stolen. 
+They let psychos burn people out in the workplace. They had factories shut down. They sicced mobs onto individuals, and then expect those individuals to feel grateful for the protection. They turned a blind eye to the kleptos, and then had to strike deals with them to take back what was stolen. 
 
 No one in their right mind would reapect them. Be warned. Doing any kind of business with their people will wind up as collaterally damaging. They have one system of doing things if they are organized. The federal republic has another system of doing things. The two do not match. Only put yourself in the middle if you can afford to be a bridge that can stand on its own. 
