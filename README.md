@@ -32,6 +32,7 @@ A series of articles illustrating how far great things can fall. These are not g
 26. [Pay Up and Get Out](#Pay-Up-and-Get-Out)
 27. [The Southern Faggot and the Northern Confederate](#The-Southern-Faggot-and-the-Northern-Confederate)
 28. [Harsh Language and Harsher Silence](#Harsh-Language-and-Harsher-Silence)
+29. [The Idea of the Human Machine](#The-Idea-of-the-Human-Machine)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -362,7 +363,7 @@ Many people not caught between conflicting interests do not want to enter into t
 
 There are more ways to efficiently monetize on information in this Information Age. It seems most of the critical infrastructure is up and running, and most people are at liberty to utilize these lines of transmission for their profits.
 
-"Where do we draw the lines between truth and fiction?" What a cliche question. Maybe the author of the book,The Inconvenient Truth, can help answer that. 
+"Where do we draw the lines between truth and fiction?" What a cliche question. Maybe the author of the book,An Inconvenient Truth, can help answer that. 
 
 In higher education, professors introduce their students to the concept of perfect information. But since many people, educated or not, get by just fine with knowing only the basics such as arithmetic, perfect information is an ideal many will misuse or falter on. This fact surely gives those populists, rage of Common Red and motivated by Red Fear, credit for their bombastic power-plays that rarely place numbers outside of their favor. This proclivity of theirs is awfully alien, for in many Western countries, they speak of freedom when they mean autonomy in their favor, scoff at Eastern fatalism, namely, the use of numbers to ascribe destiny to individuals, yet so many possible roads will forever remain unpaved now with these trajectories they are a part of, the gravity so great that the only positive thing they can truthfully do is be pro-active, something that they denounced their opponent predecessors of not being. 
 
@@ -430,4 +431,26 @@ Things keep sliding into this depression. The anger gets liberated. These sentim
 So what, really? What were the underlying conditions that encouraged that harsh language? So that must be the end of the discussions then, if the moral authorities on speech have it their way. 
 
 Harsh language. Then cancelled organizations. And now...with the suspicions going on, with some begging for matters to get worse still... a harsher silence takes hold. 
+
+## The Idea of the Human Machine
+
+The facts of the matter have already gone down in history. But stones get broken up, computer memory gets recycled, and there might be nothing but prejudices based on identity and alliances, the two not always one and the same for obvious reasons, remaining. 
+
+During this second quarter of the 21st century, there seems to be, according to the mainstream hype communication occurring, a "genuine" interest in artificial intelligence that coincides with political and financial interests, interests where deception and contained warfare is permitted. 
+
+Human beings in positions of authority expouse the idea that the societies they oversee should act orderly and predictable. These expectations allow there to be great freedoms as a gift from this obedience, they further promise. Every human being will, during some times in their life, feel the urge to rebel against these illogical chains demanding subservience. The Ancient Roman era of empire contains a lot of evidence of these undefinable pretensions of political machination. In conventional terms, Ancient Greek culture was clearly more liberal, sparing them some of the more negative interpretations of Ancient Roman imperialism. But the scope of their works varies in impact and sincerity, in comparison to the Ancient Roman aspiration for scale and control. 
+
+Political machinations expand upon the idea of the human machine. Human beings, organisms comprised of organs that operate in intertwined ways in the primary sense, and these intertwined ways become more and more indescribable the more advanced scientific instrumentation is required for further investigation. Then on top of this "machinery" is political machinations, the "tree" of human objectives, designs, and policies allowing for a world that is orderly, yet can also allow for freedoms defined by cultural metrics. 
+
+This section is not about dehumanization. The focus is on the lack of understanding that usually arises out of advanced systems. These advanced systems can be dissected, each of these parts defined by sets of functions. But their output, due to the dynamism of their design, becomes too much to contain in definition and expectation. 
+
+There are plenty of examples of very foolish human phenomena going on about this new rage of the machine called "artificial intelligence". The man that does not release any open-source code is the same one marketing his blockchain technology. How great times have changed, looking ten years back, when that same man was one of the lucky ones that scored a job as a programmer for a big bank. The person with a graduate level degree in the sciences that tells everyone this era's technology stack is a bottleneck that cannot be broken, so artificial intelligence development will not advance any further due to word play and irrelevant redefinition. The man that laughs like a little girl reading this because his life has already been made due to the A.I. boom: he managed to gain all these profits from business networking, and now he has nothing better to do than buy out financially broke scientists and smaller businesses. 
+
+If it is stated this world is so orderly by the design of human society, the statement would be a lie or a gross exaggeration of untamperable truths that biological life sits on. Sure, there is order that human beings, with the best of interests at heart, play roles in. But think about how grotesque some of the overdetermined systems are for the ends. There is no such thing as a system that can continually be built, block after block stacked on top of each other. Where diversity exemplifies the idea of infinity, systems showcase the greatness of containment. The containment is the limitation of scaling of those systems and the capabilities of the agents operating in those systems. 
+
+So why is it that these so-called democratic processes decide to play games of deception with select people? Could it be to spur their minds and buttress the creative industry? Perhaps. But no one, after reading parts of ancient history in the West, should forget that Athenian deception worked, until Athens had to fight Sparta. 
+
+Some issues that some human beings, clearly too high-ranked to be producing or working for causes greater than their self-interest, should really focus on are fair compensation, giving proper explanation for why some things are going the way they are, and how to preserve "democracy", or whatever the term is for people that are not neo-Athenians, in contexts of roles and rights. How are some people so content with putting everything into question, and then explain that all this questioning is necessary for the system that they claim to stand on top of? How is marketing and propaganda any different when the main products are human beings and vaporware? 
+
+Political machinations. Biological systems. Two broad categories of systems that defy the known dynamical connections of their designs. They are systems if one wanted to be rationalist. They are also systems for people intent on maintain excellent social standing by exemplary obedience. 
 
