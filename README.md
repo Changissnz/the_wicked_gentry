@@ -38,6 +38,7 @@ A series of articles illustrating how far great things can fall. These are not g
 32. [The Professor That Spoke of Redemption](#The-Professor-That-Spoke-of-Redemption)
 33. [They Thsought](#They-Thsought)
 34. [A Tidbit on the Trade War](#A-Tidbit-on-the-Trade-War)
+35. [The Hurt](#The-Hurt)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -513,3 +514,15 @@ Come to think of it, Big Tech is a little like a New East India Company. And it 
 
 Commercialism dominates America. And beneath it, a rather spiteful, fearful, and angry populace. 
 
+## The Hurt
+
+The advice that goes nowhere... 
+Maybe doing these things will allow for reflection. And then do these things to be a more considerate person. Also do these things to elicit details for more answers. 
+
+Weary efforts and contained attitudes. 
+
+Nowhere to turn to. First, they want to lead. Then they will leave. Separate parallels. There is no room for two profiting aftermaths. 
+
+Cliches, challenges, and the wrong kinds of rewards. 
+
+The end. 
