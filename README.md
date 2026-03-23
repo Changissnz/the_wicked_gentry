@@ -34,6 +34,7 @@ A series of articles illustrating how far great things can fall. These are not g
 28. [Harsh Language and Harsher Silence](#Harsh-Language-and-Harsher-Silence)
 29. [The Idea of the Human Machine](#The-Idea-of-the-Human-Machine)
 30. [Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood](#Making-a-Widow-Out-of-Criminal-Conspiracy-and-Foster-Children-Out-of-Bad-Parenthood)
+31. [No One Actually Respects Them](#No-One-Actually-Respects-Them)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -469,3 +470,8 @@ It just so happened that during this societal deterioration, there was an immigr
 
 And the children. The children remained and were placed into foster care. As dark as some matters turned out to be, at least someone thought about the children during these times of dark gambits. 
 
+## No One Actually Respects Them
+
+They let psychos burn people out in the workplace. They had factories shut down. They sicced mobs onto individuals, and then expect those individuals to feel grateful for the protection. They turned a blind eye to the kleptos, and then had to strike a deal with them to take back what was stolen. 
+
+No one in their right mind would reapect them. Be warned. Doing any kind of business with their people will wind up as collaterally damaging. They have one system of doing things if they are organized. The federal republic has another system of doing things. The two do not match. Only put yourself in the middle if you can afford to be a bridge that can stand on its own. 
