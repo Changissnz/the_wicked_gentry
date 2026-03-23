@@ -36,6 +36,7 @@ A series of articles illustrating how far great things can fall. These are not g
 30. [Making a Widow Out of Criminal Conspiracy, and Foster Children Out of Bad Parenthood](#Making-a-Widow-Out-of-Criminal-Conspiracy-and-Foster-Children-Out-of-Bad-Parenthood)
 31. [No One Actually Respects Them](#No-One-Actually-Respects-Them)
 32. [The Professor That Spoke of Redemption](#The-Professor-That-Spoke-of-Redemption)
+33. [They Thsought](#They-Thsought)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -490,3 +491,13 @@ The blacklist is long and heavy. It is a judgmental list. But it was ultimately 
 Blacklists are for systemic secrecy to deal with societies, filled with failures, dragging the world down. They do not mean well. 
 
 So if the professor was given word of this blacklist, there were clearly trigger-happy morons being held back, with accusers and appealers everywhere in the midst. Some will never mind biological plagues. Every person in civilization will have felt the irking extrajudicial death signs of these blacklists. They always encouraged wolves to hunt their own, and hunters to kill the wolves. 
+
+## They Thsought
+
+"But...but... I thsought." 
+
+And therein this sentence lies the issue, so phenomenal and damning. In select contexts, these words would make a lot of characters feel better, such as the gangster that sold his gangster girlfriend, the ultra-religious Christian that had a hunch driving them crazy, the cop that skipped his shift, and the teacher that knew one of her peers was having sex with teenage girls. 
+
+The admission... what a firestorm. So not only did they thought! They also sought! 
+
+It is like, "whoa. Every female is a priestess now. Every male is the Holy Roman Kaiser, the Shahs of Persia. And this person that both thought and sought... clearly wrong, as per the evidencia, the evidencio."
