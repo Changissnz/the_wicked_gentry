@@ -37,6 +37,7 @@ A series of articles illustrating how far great things can fall. These are not g
 31. [No One Actually Respects Them](#No-One-Actually-Respects-Them)
 32. [The Professor That Spoke of Redemption](#The-Professor-That-Spoke-of-Redemption)
 33. [They Thsought](#They-Thsought)
+34. [A Tidbit on the Trade War](#A-Tidbit-on-the-Trade-War)
 
 ## The Fact Remains, It Is Not Their Business 
 
@@ -501,3 +502,14 @@ And therein this sentence lies the issue, so phenomenal and damning. In select c
 The admission... what a firestorm. So not only did they thought! They also sought! 
 
 It is like, "whoa. Every female is a priestess now. Every male is the Holy Roman Kaiser, the Shahs of Persia. And this person that both thought and sought... clearly wrong, as per the evidencia, the evidencio."
+
+## A Tidbit on the Trade War
+
+News flash. Most of the computer hardware coming into the United States is from China or Taiwan. Vietnam got cut into the mix sometime in 2021. And American Big Tech is now predominated by Indians from India. There does not need to be any hard feelings at any demographic. But let these facts stand as true as they may be. And see how all this brazen political rhetoric falters on how to fix America's tech sector. There is no fix possible because that was how the trade deals went since the 1980s. It is hard to put a halt on those trajectories. 
+
+The means of production are not coming back anytime soon. 
+
+Come to think of it, Big Tech is a little like a New East India Company. And it has gotten lame. 
+
+Commercialism dominates America. And beneath it, is a rather lame and boring populace. 
+
