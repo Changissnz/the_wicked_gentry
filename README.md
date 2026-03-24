@@ -484,7 +484,7 @@ No one in their right mind would respect them. Be warned. Doing any kind of busi
 
 One would think the occupation of professor would be mindful of privacy. But the times were not normal, and it seems one of the students had been put on a blacklist. 
 
-The blacklist is for people that are to be damned. To be on the list, one only had to have been reported to have been in contact with another person on the blacklist. This rule was fundamental to the PageRank algorithm, which will come to be known as a classic for the early internet. The blacklist is essentially relativity wrapped up around the guise of moral fixtures. But it darkened the visions of everyone on it. It legitimized illegal surveillance, stalking, and even extrajudicial murder through pressure from temptresses, sent by the Devil. 
+The blacklist is for people that are to be damned. To be on the list, one only had to have been reported to have been in contact with another person on the blacklist. This rule was fundamentally similar to the PageRank algorithm, which will come to be known as a classic for the early internet. The blacklist is essentially relativity wrapped up around the guise of moral fixtures. But it darkened the visions of everyone on it. It legitimized illegal surveillance, stalking, and even extrajudicial murder through pressure from temptresses, sent by the Devil. 
 
 A spic wielding the Catholic faith, bullying the ching-chings on behalf of his Irish Catholic godfather. A Slav, conducting illegal hacking for the United Kingdom, that also facilitated arms sales to Burmese for their civil war. A Frenchman that cannot mind his own business, but can handle the stolen fortunes of Arabs just fine. A courtesan from Western Europe, being dissolved alive in corrosive acid.
 
