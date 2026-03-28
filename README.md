@@ -6,7 +6,7 @@ concluded: 3/26/26
 
 ## Table of Contents
 1. [The Fact Remains, It Is Not Their Business ](#The-Fact-Remains-It-Is-Not-Their-Business)
-2. [Big Security is Part of Big Business](#Big-Security-is-Part-of-Big-Business)
+2. [Big Security Is Part of Big Business](#Big-Security-Is-Part-of-Big-Business)
 3. [Just Some Little Experiments in Autocracy](#Just-Some-Little-Experiments-in-Autocracy)
 4. [Stay Away From the Doubles](#Stay-Away-From-the-Doubles)
 5. [Making Private Equity Bleed to Death](#Making-Private-Equity-Bleed-to-Death)
@@ -59,7 +59,7 @@ It was not their business, but the business was either dying or already down und
 
 Judgments aside, the purpose of this section is to illustrate these purposes that such modern-day developed state provides to suburbia. 
 
-## Big Security is Part of Big Business  
+## Big Security Is Part of Big Business  
 
 Once economic activity passes the secondary sector, where the raw materials get assembled or manufactured, the activity becomes very arbitrary in value, based on the material factor. How is it that an account executive that took easy courses at a state college end up making six figures straight out of school, while an excellent STEM student is most likely to start out as a technician or even unemployed? Here is a theory. It is about the roles, like chess. The position of account executive is a somewhat important leadership position. There can only be so many. There can only be so many scientists as well. And judging by the state of things, finance will always be in, while science periodically recedes to the fringes after some major breakthrough in scientific instrumentation or production mechanism.
 
